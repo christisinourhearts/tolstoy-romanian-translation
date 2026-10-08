@@ -113,7 +113,7 @@ Căutam răspuns la întrebarea vieții, și nu la una teologică și istorică,
 
 Și am început să mă uit cu atenție la această lumină și să lepăd tot ce îi era potrivnic, și cu cât înaintam mai departe pe această cale, cu atât mai neîndoielnică devenea pentru mine diferența dintre adevăr și minciună. La începutul lucrării mele mai aveam încă îndoieli, mai erau încercări de explicații artificiale, dar cu cât mergeam mai departe, cu atât mai ferm și mai limpede devenea lucrul și mai neîndoielnic adevărul. Eram în situația unui om care adună o statuie spartă în bucăți. La început mai poate fi încă îndoială — este bucata aceasta o parte din picior sau din mână, dar când picioarele sunt adunate, atunci bucata de bună seamă nu se potrivește la picior, iar când, pe lângă aceasta, <!-- vol. 24, p. 808 --> această bucată se îmbină cu o altă bucată laterală și se potrivește cu toate liniile rupturii cu bucata de jos, atunci nu mai poate fi îndoială. Aceasta am încercat-o pe măsură ce înaintam în lucrarea mea, și dacă nu sunt nebun, atunci acest simțământ va trebui să-l încerce și cititorul la citirea expunerii mari a Evangheliei, unde fiecare teză este confirmată în același timp și de considerații filologice, și de variante, și de contexte, și de acordul cu gândul fundamental.
 
-Aici s-ar fi putut încheia prefața, dacă Evangheliile ar fi fost cărți descoperite acum, dacă învățătura lui Hristos n-ar fi fost supusă unor tâlcuiri mincinoase de 1800 de ani. Dar acum, pentru înțelegerea adevăratei învățături a lui Isus, așa cum o putea înțelege el însuși, este necesar să conștientizăm cauzele principale ale tâlcuirilor mincinoase, care au denaturat învățătura, și procedeele principale ale acestor tâlcuiri mincinoase. Cauza principală a acelor tâlcuiri mincinoase care au mutilat atât de mult învățătura lui Hristos, încât ea abia se poate vedea sub stratul lor gros, constă în aceea că de pe vremea lui Pavel, care, neînțelegând bine învățătura lui Hristos și nici necunoscând-o așa cum s-a exprimat ea mai târziu în Evanghelia lui Matei, a legat-o de învățătura despre tradiția fariseică și de aceea de toate învățăturile Vechiului Testament. Pavel este socotit de obicei apostolul păgânilor — apostolul protestanților. Și a și fost astfel în aparență, în privința tăierii împrejur, de pildă. Dar învățătura despre tradiție, despre legătura Vechiului Testament cu cel Nou a fost adusă în creștinism de Pavel, și tocmai această învățătură despre tradiție, acest principiu al tradiției a fost cauza principală a denaturării învățăturii creștine și a neînțelegerii ei.
+Aici s-ar fi putut încheia prefața, dacă Evangheliile ar fi fost cărți descoperite acum, dacă învățătura lui Hristos n-ar fi fost supusă unor tâlcuiri mincinoase de 1800 de ani. Dar acum, pentru înțelegerea adevăratei învățături a lui Isus, așa cum o putea înțelege el însuși, este necesar să conștientizăm cauzele principale ale tâlcuirilor mincinoase, care au denaturat învățătura, și procedeele principale ale acestor tâlcuiri mincinoase. Cauza principală a acelor tâlcuiri mincinoase care au mutilat atât de mult învățătura lui Hristos, încât e greu s-o vezi sub stratul lor gros, constă în aceea că de pe vremea lui Pavel, care, neînțelegând bine învățătura lui Hristos și nici necunoscând-o așa cum s-a exprimat ea mai târziu în Evanghelia lui Matei, a legat-o de învățătura despre tradiția fariseică și de aceea de toate învățăturile Vechiului Testament. Pavel este socotit de obicei apostolul păgânilor — apostolul protestanților. Și a și fost astfel în aparență, în privința tăierii împrejur, de pildă. Dar învățătura despre tradiție, despre legătura Vechiului Testament cu cel Nou a fost adusă în creștinism de Pavel, și tocmai această învățătură despre tradiție, acest principiu al tradiției a fost cauza principală a denaturării învățăturii creștine și a neînțelegerii ei.
 
 De pe vremea lui Pavel începe talmudul creștin, care se numește biserică, iar învățătura lui Hristos devine nu o învățătură unică, dumnezeiască și deplină, [ci] una dintre verigile lanțului revelației care a început de la începutul lumii și continuă în biserică până astăzi.
 
@@ -143,7 +143,7 @@ Sectanții sfântduhovnicești, recunoscând drept ultimă revelație, care expl
 
 Și totodată s-ar părea că tocmai istoricii nicidecum nu pot face această greșeală. Problema pe care o au de rezolvat constă în următoarele: acum 1800 de ani s-a ivit un oarecare cerșetor și a vorbit ceva. L-au bătut cu nuiele și l-au spânzurat, și toți au uitat de el, cum au fost uitate milioane de asemenea cazuri, și vreo 200 de ani lumea n-a auzit nimic despre el. Dar se dovedește că cineva a ținut minte ce spunea el, i-a povestit altuia, unui al treilea. Mai departe, tot mai mult, și iată că miliarde de oameni deștepți și proști, învățați și neștiutori de carte nu se pot descotorosi de gândul că acesta, numai acest om era Dumnezeu. Cum să explici acest fenomen uimitor? Bisericeștii spun că aceasta s-a întâmplat din pricină că Isus era într-adevăr Dumnezeu. Și atunci totul este de înțeles. Dar, dacă nu era Dumnezeu, atunci cum să explici că tocmai acest om simplu este recunoscut de toți ca Dumnezeu?
 
-<!-- vol. 24, p. 813 --> Și învățații acestei școli caută cu sârguință toate amănuntele despre condițiile de viață ale acestui om, fără să observe că, oricâte amănunte ar găsi (în realitate n-au găsit absolut nimic în afară de ce este la Iosif Flaviu și în Evanghelii), chiar dacă ar reconstitui toată viața lui Isus până la cele mai mici amănunte și ar afla când ce a mâncat și unde a înnoptat Isus, întrebarea de ce el, tocmai el a avut o asemenea înrâurire asupra oamenilor ar rămâne totuși fără răspuns. Răspunsul nu stă în mediul în care s-a născut Isus, în cine l-a crescut etc., și și mai puțin în ce se petrecea la Roma și în faptul că poporul era înclinat spre superstiție etc., ci numai în ceea ce propovăduia acest om atât de deosebit, încât i-a făcut pe oameni să-l deosebească de toți ceilalți și să-l recunoască drept Dumnezeu atunci și acum. S-ar părea că, dacă vrei să înțelegi aceasta, primul lucru care trebuie făcut este să încerci să înțelegi învățătura acestui om, și să înțelegi, de la sine înțeles, tocmai învățătura lui, și nu acele tâlcuiri grosolane ale învățăturilor lui care s-au răspândit și se răspândesc după el. Și tocmai aceasta nu se face. Acești învățați istorici ai creștinismului s-au bucurat atât de mult că au înțeles că Isus nu era Dumnezeu și atât de mult vor să dovedească faptul că învățătura lui nu este dumnezeiască și de aceea nu este obligatorie, încât, uitând că, cu cât vor dovedi mai mult că era un om simplu și că învățătura lui nu este dumnezeiască, cu atât vor fi mai departe de înțelegerea întrebării care îi preocupă, își încordează toate puterile ca să dovedească faptul că era un om simplu, că de aceea învățătura lui nu este dumnezeiască. Ca să vezi limpede această rătăcire uimitoare, ajunge să-ți amintești de Renan și de ucenicii lui. Havet — acela afirmă naiv că Jesus Christi n’avait rien de chritien. Iar Souris — acela dovedește cu entuziasm că Isus Hristos era un om foarte grosolan și prost.
+<!-- vol. 24, p. 813 --> Și învățații acestei școli caută cu sârguință toate amănuntele despre condițiile de viață ale acestui om, fără să observe că, oricâte amănunte ar găsi (în realitate n-au găsit absolut nimic în afară de ce este la Iosif Flaviu și în Evanghelii), chiar dacă ar reconstitui toată viața lui Isus până la cele mai mici amănunte și ar afla când ce a mâncat și unde a înnoptat Isus, întrebarea de ce el, tocmai el a avut o asemenea înrâurire asupra oamenilor ar rămâne totuși fără răspuns. Răspunsul nu stă în mediul în care s-a născut Isus, în cine l-a crescut etc., și și mai puțin în ce se petrecea la Roma și în faptul că poporul era înclinat spre superstiție etc., ci numai în ce lucru atât de deosebit propovăduia acest om, încât i-a făcut pe oameni să-l deosebească de toți ceilalți și să-l recunoască drept Dumnezeu atunci și acum. S-ar părea că, dacă vrei să înțelegi aceasta, primul lucru care trebuie făcut este să încerci să înțelegi învățătura acestui om, și să înțelegi, de la sine înțeles, tocmai învățătura lui, și nu acele tâlcuiri grosolane ale învățăturilor lui care s-au răspândit și se răspândesc după el. Și tocmai aceasta nu se face. Acești învățați istorici ai creștinismului s-au bucurat atât de mult că au înțeles că Isus nu era Dumnezeu și atât de mult vor să dovedească faptul că învățătura lui nu este dumnezeiască și de aceea nu este obligatorie, încât, uitând că, cu cât vor dovedi mai mult că era un om simplu și că învățătura lui nu este dumnezeiască, cu atât vor fi mai departe de înțelegerea întrebării care îi preocupă, își încordează toate puterile ca să dovedească faptul că era un om simplu, că de aceea învățătura lui nu este dumnezeiască. Ca să vezi limpede această rătăcire uimitoare, ajunge să-ți amintești de Renan și de ucenicii lui. Havet — acela afirmă naiv că Jesus Christi n’avait rien de chritien. Iar Souris — acela dovedește cu entuziasm că Isus Hristos era un om foarte grosolan și prost.
 
 Lucrul nu este să dovedești că Isus nu era Dumnezeu și că de aceea învățătura lui nu este dumnezeiască, și nici să dovedești că nu era catolic, ci să înțelegi în ce consta acea învățătură care a fost atât de înaltă și de scumpă oamenilor, încât pe propovăduitorul acestei învățături oamenii l-au recunoscut și îl recunosc drept Dumnezeu. Iată, aceasta am încercat s-o fac; și pentru mine, cel puțin, am făcut-o. Și iată, aceasta le-o ofer fraților mei.
 
@@ -167,7 +167,7 @@ Evanghelia este vestirea că principiul a toate nu este un Dumnezeu exterior, cu
 
 Fără înțelegere nu este viață. Orice om este viu numai pentru că are înțelegere. Acei oameni care nu pricep aceasta și socotesc trupul drept principiu al vieții se lipsesc de viața adevărată. Iar cei care pricep că sunt vii nu prin trup, ci prin înțelegere, aceia au viața adevărată. Și tocmai această viață adevărată a arătat-o Isus Hristos. Recunoscând adevărul că viața omului provine din înțelegere, el le-a dat oamenilor învățătura și pilda vieții înțelegerii în trup.
 
-Credințele de mai înainte se exprimau ca o lege despre ce trebuie și ce nu trebuie făcut pentru slujirea lui Dumnezeu. Iar învățătura lui Isus Hristos constă în înțelegerea vieții. Pe Dumnezeul exterior nimeni nu l-a văzut vreodată și nu-l poate cunoaște, și de aceea slujirea Dumnezeului exterior <!-- vol. 24, p. 817 --> nu poate conduce viața. Numai recunoașterea ca temelie a tuturor, — a înțelegerii din sine, provenite din principiul înțelegerii, arată calea vieții.
+Credințele de mai înainte se exprimau ca o lege despre ce trebuie și ce nu trebuie făcut pentru slujirea lui Dumnezeu. Iar învățătura lui Isus Hristos constă în înțelegerea vieții. Pe Dumnezeul exterior nimeni nu l-a văzut vreodată și nu-l poate cunoaște, și de aceea slujirea Dumnezeului exterior <!-- vol. 24, p. 817 --> nu poate conduce viața. Numai recunoașterea ca temelie a tuturor, — a înțelegerii aflate în sine, provenite din principiul înțelegerii, arată calea vieții.
 
 Marc. I, 1. Vestirea despre binele lui Isus Hristos fiul lui Dumnezeu.
 
@@ -185,7 +185,7 @@ Ioan I, 1. Ca temelie și principiu a toate s-a așezat înțelegerea vieții. �
 
 10. Ea era în lume, și lumea este vie numai pentru că avea în sine lumina înțelegerii, dar lumea nu o păstra.
 
-11. Ea s-a arătat într-ale sale, dar ale sale nu o păstrau.
+11. Ea se arăta într-ale sale, dar ale sale nu o păstrau.
 
 12. Numai cei care au priceput înțelegerea, numai aceia au primit putința de a se face asemenea ei, prin aceea că au crezut în esența ei.
 
@@ -293,7 +293,7 @@ Mat. IV, 1. Și de la Iordan s-a dus în pustie și acolo a cunoscut puterea spi
 
 Luc. IV, 3. Dacă ai fi fiul Dumnezeului atotputernic, atunci după voia ta ai putea face pâini din pietre, dar tu nu poți face aceasta, prin urmare nu ești fiul lui Dumnezeu.
 
-<!-- vol. 24, p. 821 --> 4. Dar Isus și-a spus: dacă nu pot face pâine din pietre, aceasta înseamnă că nu sunt fiul Dumnezeului trupului, ci fiul Dumnezeului spiritului. Eu sunt viu nu prin pâine, ci prin spirit. Și spiritul meu poate să nesocotească trupul. Dar foamea tot îl chinuia, și glasul trupului i-a mai spus: dacă ești viu numai prin spirit și poți să nesocotești trupul, atunci poți să te lepezi de trup, și spiritul tău va rămâne viu.
+<!-- vol. 24, p. 821 --> 4. Dar Isus și-a spus: chiar dacă nu pot face pâine din pietre, aceasta înseamnă că nu sunt fiul Dumnezeului trupului, ci fiul Dumnezeului spiritului. Eu sunt viu nu prin pâine, ci prin spirit. Și spiritul meu poate să nesocotească trupul. Dar foamea tot îl chinuia, și glasul trupului i-a mai spus: dacă ești viu numai prin spirit și poți să nesocotești trupul, atunci poți să te lepezi de trup, și spiritul tău va rămâne viu.
 
 9. Și i s-a părut că stă pe acoperișul templului și glasul trupului îi spune: dacă ești fiul Dumnezeului spiritului, atunci aruncă-te de pe templu, nu te vei ucide.
 
@@ -423,7 +423,7 @@ Mat. XV, 7. Înșelătorilor! adevărul a spus despre voi profetul Isaia;
 
 8. „Pentru că poporul acesta numai cu vorba se pleacă înaintea mea și cu limba mă cinstește, pe când inima lui este departe de mine.
 
-9. Și pentru că frica lui de mine este numai o poruncă omenească, pe care a învățat-o pe de rost, pentru aceasta voi face asupra acestui popor un lucru uimitor, neobișnuit: înțelepciunea înțelepților lui va pieri și mintea celor cu minte ai lui se va întuneca. Vai celor ce se îngrijesc să-și ascundă dorințele de Cel Veșnic și care își fac faptele în întuneric”.
+9. Și pentru că frica lui de mine este numai o poruncă omenească, pe care a învățat-o pe de rost, pentru aceasta voi face asupra acestui popor un lucru uimitor, neobișnuit: înțelepciunea înțelepților lui va pieri și rațiunea deștepților lui se va întuneca. Vai celor ce se îngrijesc să-și ascundă dorințele de Cel Veșnic și care își fac faptele în întuneric”.
 
 Marc. VII, 8. Așa și voi, lăsați ce este important în lege, ceea ce este porunca lui Dumnezeu, și țineți tradiția voastră omenească — să clătiți ceștile.
 
@@ -437,7 +437,7 @@ Marc. VII, 8. Așa și voi, lăsați ce este important în lege, ceea ce este po
 
 18. Și el a spus: oare nici voi n-ați înțeles aceasta? Oare nu înțelegeți că tot ce este exterior, trupesc, nu-l poate pângări pe om?
 
-19. Pentru că intră în el nu în suflet, ci în pântece. În pântece intră, iar din fund iese afară cu fecalele.
+19. Pentru că intră în el nu în suflet, ci în burtă. În burtă intră, iar din fund iese afară cu fecalele.
 
 20. Numai ceea ce iese din om, din sufletul lui, îl poate pângări pe om.
 
@@ -501,7 +501,7 @@ Ioan IV, 4. Și a trebuit odată Isus să treacă prin Samaria.
 
 24. Dumnezeu — acesta este spirit, și trebuie cinstit în spirit și prin faptă.
 
-25. Femeia n-a deslușit ce i-a spus el și spune: am auzit că trimisul lui Dumnezeu va veni, acela pe care îl numesc unsul. El atunci ne va spune totul.
+25. Femeia n-a deslușit ce i-a spus el și spune: am auzit că trimisul lui Dumnezeu va veni, acela pe care îl numesc unsul. El atunci va povesti totul.
 
 26. Iar Isus îi spune: eu sunt, acela care vorbește cu tine. Nu mai aștepta nimic.
 
@@ -515,7 +515,7 @@ Ioan IV, 4. Și a trebuit odată Isus să treacă prin Samaria.
 
 26. Și au venit la Ioan și i-au spus: iată, tu curăți cu apă, iar Isus numai învață; și toți se duc la el. Ce spui despre el?
 
-27. Ioan a spus: omul nu poate învăța singur nimic, dacă nu-l învață Dumnezeu.
+27. Ioan a spus: omul nu poate de la sine să învețe pe nimeni nimic, dacă nu-l învață Dumnezeu.
 
 28. Cine spune cele pământești, acela pământesc și este, iar dacă cineva vorbește de la Dumnezeu, atunci — de la Dumnezeu.
 
@@ -535,7 +535,7 @@ Luc. VII, 37. Și pe când el ședea în casă la ortodox, a venit o femeie din 
 
 38. Și a îngenuncheat la picioarele lui, a plâns și cu lacrimile îi uda picioarele, i le ștergea cu părul și le turna parfum din flacon.
 
-39. A văzut aceasta ortodoxul și și-a zis în sine: cu greu să fie el profet. Dacă ar fi într-adevăr profet, ar ști ce fel de femeie îi spală picioarele, ar ști că aceasta este — o necredincioasă, și nu i-ar îngădui să se atingă de el.
+39. A văzut aceasta ortodoxul și și-a zis în sine: greu de crezut că el e profet. Dacă ar fi într-adevăr profet, ar ști ce fel de femeie îi spală picioarele, ar ști că aceasta este — o necredincioasă, și nu i-ar îngădui să se atingă de el.
 
 40. Isus a ghicit, s-a întors spre el și spune: să-ți spun ce gândesc? — Spune, — zice.
 
@@ -601,7 +601,7 @@ Ucenicii lui Isus îl întreabă pe Isus în ce constă acea împărăție a lui
 
 La întrebarea când va veni împărăția lui Dumnezeu, Isus spune că împărăția lui Dumnezeu este nevăzută și nu se află în ceea ce este exterior, ci este în sufletele oamenilor. Începutul și sfârșitul a toate — sunt în sufletul omului.
 
-Și lămurind sensul împărăției lui Dumnezeu, Isus spune: Fiecare om, pe lângă viața sa trupească, pe lângă zămislirea, înțeleasă de el, de la un tată trupesc în pântecele unei mame trupești, are conștiința unui spirit liber, rațional și neatârnat de trup. Tocmai acest spirit, nesfârșit și ieșit din nesfârșit, este principiul a toate și ceea ce numim noi Dumnezeu. Îl cunoaștem numai în noi. Acest spirit este principiul vieții noastre, și el trebuie pus mai presus de toate, prin el trebuie să trăim. Făcând din acest spirit temelia vieții, primim viața adevărată, nesfârșită. Tatăl spirit care a trimis acest spirit în oameni nu putea să-l trimită ca să-i înșele pe oameni, ca oamenii, având conștiința vieții nesfârșite în ei, s-o piardă. Dacă există în om acest spirit nesfârșit, atunci el trebuie să dea viață nesfârșită. Și de aceea omul care își pune viața în acest spirit are viață nesfârșită. Omul care nu-și pune viața în acest spirit nu are viață. Oamenii își pot alege singuri viața și moartea. Viața este în spirit, moartea în trup. Viața spiritului este binele, lumina; viața trupului — răul, întunericul. A crede în spirit — înseamnă a săvârși faptele binelui; a nu crede — înseamnă a săvârși faptele răului. Binele este viața, răul este moartea. Pe Dumnezeu, creatorul exterior, principiul tuturor principiilor, nu-l cunoaștem. Tot ce ne putem închipui despre el este că el a semănat în oameni spiritul, și a semănat cum seamănă semănătorul, peste tot, fără să aleagă pământul, și sămânța care a căzut în pământ bun crește, iar în cel nepotrivit — piere. Numai spiritul dă viață oamenilor, <!-- vol. 24, p. 833 --> și de la oameni depinde s-o păstreze sau s-o piardă. Răul nu există pentru spirit. Răul — este o închipuire de viață. Există numai ce e viu și ce nu e viu. Răul — nu e viu. Aceasta este reprezentarea despre toată lumea oamenilor; dar pentru fiecare om există conștiința împărăției cerului în suflet. Fiecare poate, după bunul său plac, să intre sau să nu intre în ea. Ca să intri în ea, trebuie să crezi în viața spiritului. Cel ce crede în viața spiritului are viață nesfârșită.
+Și lămurind sensul împărăției lui Dumnezeu, Isus spune: Fiecare om, pe lângă viața sa trupească, pe lângă zămislirea, înțeleasă de el, de la un tată trupesc în pântecele unei mame trupești, are conștiința unui spirit liber, rațional și neatârnat de trup. Tocmai acest spirit, nesfârșit și ieșit din nesfârșit, este principiul a toate și ceea ce numim noi Dumnezeu. Îl cunoaștem numai în noi. Acest spirit este principiul vieții noastre, și el trebuie pus mai presus de toate, prin el trebuie să trăim. Făcând din acest spirit temelia vieții, primim viața adevărată, nesfârșită. Tatăl spirit care a trimis acest spirit în oameni nu putea să-l trimită ca să-i înșele pe oameni, ca oamenii, având conștiința vieții nesfârșite în ei, s-o piardă. Dacă există în om acest spirit nesfârșit, atunci el trebuie să dea viață nesfârșită. Și de aceea omul care își pune viața în acest spirit are viață nesfârșită. Omul care nu-și pune viața în acest spirit nu are viață. Oamenii își pot alege singuri viața și moartea. Viața este în spirit, moartea în trup. Viața spiritului este binele, lumina; viața trupului — răul, întunericul. A crede în spirit — înseamnă a săvârși faptele binelui; a nu crede — înseamnă a săvârși faptele răului. Binele este viața, răul este moartea. Pe Dumnezeu, creatorul exterior, principiul tuturor principiilor, nu-l cunoaștem. Tot ce ne putem închipui despre el este că el a semănat în oameni spiritul, și a semănat cum seamănă semănătorul, peste tot, fără să aleagă pământul, și sămânța care a căzut în pământ bun crește, iar în cel nepotrivit — piere. Numai spiritul dă viață oamenilor, <!-- vol. 24, p. 833 --> și de la oameni depinde s-o păstreze sau s-o piardă. Răul nu există pentru spirit. Răul — este o aparență de viață. Există numai ce e viu și ce nu e viu. Răul — nu e viu. Aceasta este reprezentarea despre toată lumea oamenilor; dar pentru fiecare om există conștiința împărăției cerului în suflet. Fiecare poate, după bunul său plac, să intre sau să nu intre în ea. Ca să intri în ea, trebuie să crezi în viața spiritului. Cel ce crede în viața spiritului are viață nesfârșită.
 
 Mat. XI, 2, 3. După aceasta au venit ucenicii lui Ioan să-l întrebe pe Isus: este el acela despre care vorbește Ioan; deschide el împărăția lui Dumnezeu și îi înnoiește el pe oameni prin spirit?
 
@@ -639,17 +639,17 @@ Luc. XVII, 20. Și au venit la Isus ortodocșii și au început să-l întrebe c
 
 21. Și nu are nici timp, nici loc, pentru că împărăția lui Dumnezeu, aceea pe care o propovăduiesc eu, — este înăuntrul vostru.
 
-Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodim, a venit la Isus noaptea și spune: tu nu poruncești să se țină sâmbetele, nu poruncești să se păstreze curățenia, nu poruncești să se aducă jertfe, să se postească; templul l-ai nimicit, despre Dumnezeu spui că el este — spirit, și despre împărăția lui Dumnezeu spui că este înăuntrul nostru. Ce fel de împărăție a lui Dumnezeu este aceasta?
+Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodim, a venit la Isus noaptea și spune: tu nu poruncești să se țină sâmbetele, nu poruncești să se păstreze curăția, nu poruncești să se aducă jertfe, să se postească; templul l-ai nimicit, despre Dumnezeu spui că el este — spirit, și despre împărăția lui Dumnezeu spui că este înăuntrul nostru. Ce fel de împărăție a lui Dumnezeu este aceasta?
 
 3. Și Isus i-a răspuns: înțelege tu, dacă omul este zămislit din cer, atunci în el trebuie să fie ceva ceresc.
 
-4. Nicodim n-a înțeles aceasta și a spus: cum poate omul, dacă este zămislit din trupul tatălui și a îmbătrânit, să intre iar în pântecele mamei și să fie zămislit de la început?
+4. Nicodim n-a înțeles aceasta și a spus: cum poate omul, dacă este zămislit din trupul tatălui și a îmbătrânit, să se vâre iar în burta mamei și să fie zămislit de la început?
 
 5. Și Isus i-a răspuns: înțelege tu ce spun. Eu spun că omul, pe lângă trup, este zămislit și din spirit, și de aceea orice om este zămislit din trup și din spirit, și de aceea în el poate fi împărăția cerului.
 
 6. Din trup — trup. Din trup nu se poate naște spirit: numai din spirit poate fi spirit.
 
-<!-- vol. 24, p. 835 --> 8. Spiritul — este ceea ce trăiește în tine, și trăiește liber și rațional, și ceea ce nu-i cunoști nici începutul, nici sfârșitul, și aceasta o simte în sine orice om.
+<!-- vol. 24, p. 835 --> 8. Spiritul — este ceea ce trăiește în tine, și trăiește liber și rațional, și lucrul căruia nu-i cunoști nici începutul, nici sfârșitul, și aceasta o simte în sine orice om.
 
 7. Și de aceea, de ce te-ai mirat că ți-am spus că trebuie să fim zămisliți din cer?
 
@@ -657,7 +657,7 @@ Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodi
 
 10. Atunci Isus i-a spus: ce fel de învățător ești tu, dacă nu înțelegi aceasta!
 
-11. Înțelege tu că nu tâlcuiesc eu vreo înțelepciune deosebită; eu tâlcuiesc ceea ce știm cu toții, te încredințez de ceea ce vedem cu toții.
+11. Înțelege tu că nu tâlcuiesc eu cine știe ce înțelepciuni; eu tâlcuiesc ceea ce știm cu toții, te încredințez de ceea ce vedem cu toții.
 
 12. Cum vei crede tu în ceea ce este în cer, dacă nu crezi în ceea ce este pe pământ, ceea ce este în tine însuți.
 
@@ -687,7 +687,7 @@ Mat. XIII, 3. Și după aceasta a început Isus să tâlcuiască poporului ce es
 
 7. Iar altele cad în pelin, și pelinul înăbușă grâul, și răsare spicul, dar nu se umple.
 
-8. Iar altele cad în pământ bun, acelea răsar și recuperează pentru boabele pierdute, și dau în spic și se umplu; și un spic dă însutit, altul de șaizeci de ori, altul de treizeci de ori.
+8. Iar altele cad în pământ bun, acelea răsar și compensează boabele pierdute, și dau în spic și se umplu; și un spic dă însutit, altul de șaizeci de ori, altul de treizeci de ori.
 
 Tot așa și Dumnezeu a semănat spiritul în oameni, în unii el se pierde, iar în alții rodește însutit. Tocmai acești oameni alcătuiesc împărăția lui Dumnezeu.
 
@@ -755,7 +755,7 @@ Ca să împlinești voia tatălui, care dă viață și bine tuturor oamenilor, 
 
 <!-- vol. 24, p. 839 --> *Prima* *poruncă*. Să nu nedreptățești pe nimeni și să faci așa încât să nu stârnești în nimeni răul, pentru că din rău se naște răul.
 
-*A doua poruncă*. Să nu faci curte femeilor, să nu o părăsești pe femeia cu care te-ai împreunat, pentru că părăsirea femeilor și schimbarea lor produce tot desfrâul din lume.
+*A doua poruncă*. Să nu faci curte femeilor, să nu o părăsești pe femeia cu care te-ai însoțit, pentru că părăsirea femeilor și schimbarea lor produce tot desfrâul din lume.
 
 *A treia poruncă*. Să nu juri în nimic, pentru că nu poți făgădui nimic, întrucât omul este cu totul în puterea tatălui, iar jurămintele se iau pentru fapte rele.
 
@@ -763,7 +763,7 @@ Ca să împlinești voia tatălui, care dă viață și bine tuturor oamenilor, 
 
 *A cincea poruncă*. Să nu faci deosebire între patria ta și una străină, pentru că toți oamenii sunt copiii unui singur tată.
 
-Aceste cinci porunci trebuie ținute nu ca să câștigi lauda oamenilor, ci pentru tine, pentru fericirea ta. Nici să te rogi, nici să postești nu este necesar. Să te rogi nu e necesar pentru că tatăl știe tot ce le trebuie oamenilor. Și nu ai ce să-i ceri; trebuie numai să te străduiești să fii în voia tatălui. Iar voia tatălui este să nu ai ură pe nimeni. Să postești nu e necesar: oamenii postesc numai pentru lauda oamenilor; iar lauda oamenilor nu poate da fericirea. Trebuie să te îngrijești numai să fii în voia tatălui, iar restul va veni de la sine. Dacă te îngrijești de cele trupești, atunci nu te mai poți îngriji de împărăția cerului. Și fără grija de mâncare și de îmbrăcăminte omul va fi viu. Tatăl dă viața. Trebuie să te îngrijești numai ca în ceasul de acum să fii în voia tatălui. Tatăl le dă copiilor ceea ce le trebuie. Se poate dori numai puterea spiritului, pe care o dă tatăl. Cele cinci porunci hotărăsc calea spre împărăția cerului. Numai această cale îngustă duce la viața veșnică. Învățătorii mincinoși, lupi în piei de oaie, încearcă întotdeauna să-i abată pe oameni de pe această cale. Trebuie să te ferești de ei. Pe învățătorii mincinoși îi poți recunoaște întotdeauna, pentru că ei învață răul în numele binelui. Dacă învață silnicia, execuțiile — sunt învățători mincinoși. După faptele pe care le învață îi poți recunoaște.
+Aceste cinci porunci trebuie ținute nu ca să câștigi lauda oamenilor, ci pentru tine, pentru fericirea ta. Nici să te rogi, nici să postești nu este necesar. Să te rogi nu e necesar pentru că tatăl știe tot ce le trebuie oamenilor. Și nu ai ce să-i ceri; trebuie numai să te străduiești să fii în voia tatălui. Iar voia tatălui este să nu ai răutate față de nimeni. Să postești nu e necesar: oamenii postesc numai pentru lauda oamenilor; iar lauda oamenilor nu poate da fericirea. Trebuie să te îngrijești numai să fii în voia tatălui, iar restul va veni de la sine. Dacă te îngrijești de cele trupești, atunci nu te mai poți îngriji de împărăția cerului. Și fără grija de mâncare și de îmbrăcăminte omul va fi viu. Tatăl dă viața. Trebuie să te îngrijești numai ca în ceasul de acum să fii în voia tatălui. Tatăl le dă copiilor ceea ce le trebuie. Se poate dori numai puterea spiritului, pe care o dă tatăl. Cele cinci porunci hotărăsc calea spre împărăția cerului. Numai această cale îngustă duce la viața veșnică. Învățătorii mincinoși, lupi în piei de oaie, încearcă întotdeauna să-i abată pe oameni de pe această cale. Trebuie să te ferești de ei. Pe învățătorii mincinoși îi poți recunoaște întotdeauna, pentru că ei învață răul în numele binelui. Dacă învață silnicia, execuțiile — sunt învățători mincinoși. După faptele pe care le învață îi poți recunoaște.
 
 Împlinește voia tatălui nu acela care cheamă numele lui Dumnezeu, ci acela care face faptele binelui. Așa încât cine împlinește aceste cinci porunci, acela va avea o viață neîndoielnică, pe care nimeni nu i-o <!-- vol. 24, p. 840 --> va lua, iar cine nu le va împlini, acela va avea o viață care curând i se va lua, așa încât nu va rămâne nimic. Învățătura lui Isus uimește și atrage tot poporul prin aceea că îi recunoaște pe toți liberi. Învățătura lui Isus a fost împlinirea proorociei lui Isaia, că alesul lui Dumnezeu a adus lumina oamenilor și a biruit răul, și a restabilit dreptatea prin blândețe, smerenie și bine, și nu prin silnicie.
 
@@ -815,7 +815,7 @@ Așa că iată *prima poruncă:* nu vă mâniați, nu vă certați, iar dacă v-
 
 <!-- vol. 24, p. 842 --> Mat. XIX, 7. *A doua poruncă*. În legea de mai înainte este spus: să nu preacurvești. Și dacă vrei să-ți lași femeia, dă-i carte de despărțire; iar eu vă spun că, dacă te desfeți privind frumusețea unei femei, atunci deja preacurvești. Orice desfrâu pierde sufletul, și de aceea e mai bine pentru tine să renunți la desfătarea trupească decât să-ți pierzi viața.
 
-9. Și dacă îți vei lăsa femeia, atunci, pe lângă faptul că ești desfrânat, o mâni și pe ea în desfrâu, și pe acela care se va lega de ea. Și de aceea, iată *a doua poruncă:* Să nu crezi că iubirea pentru femeie ar fi un lucru bun. Nu te desfăta privind femeile, ci trăiește cu aceea cu care te-ai împreunat și nu o părăsi.
+9. Și dacă îți vei lăsa femeia, atunci, pe lângă faptul că ești desfrânat, o mâni și pe ea în desfrâu, și pe acela care se va lega de ea. Și de aceea, iată *a doua poruncă:* Să nu crezi că iubirea pentru femeie ar fi un lucru bun. Nu te desfăta privind femeile, ci trăiește cu aceea cu care te-ai însoțit și nu o părăsi.
 
 *A treia poruncă*. În legea de mai înainte este spus: să nu rostești numele Domnului Dumnezeului tău în deșert, să nu chemi pe Dumnezeul tău în minciună (Lev. XIX, 12). Să nu necinstești numele Dumnezeului tău. Să nu jurați pe mine în nedreptate, așa încât să-l pângăriți pe Dumnezeul vostru. Iar eu vă spun.
 
@@ -827,7 +827,7 @@ Mat. V, 34. Că orice jurământ este o pângărire a lui Dumnezeu, și de aceea
 
 38. *A patra poruncă.* În legea de mai înainte este spus: (Ieș. XXI, 21 și 22): că acela care va pierde un suflet trebuie să dea suflet pentru suflet, ochi pentru ochi, dinte pentru dinte, mână pentru mână, bou pentru bou, rob pentru rob și încă multe altele.
 
-39. Iar eu vă spun: nu lupta cu răul prin rău și nu numai că să nu iei prin judecată bou pentru bou, rob pentru rob, suflet pentru suflet, ci să nu te împotrivești deloc răului.
+39. Iar eu vă spun: nu lupta cu răul prin rău și nu numai să nu iei prin judecată bou pentru bou, rob pentru rob, suflet pentru suflet, ci să nu te împotrivești deloc răului.
 
 40. Dacă cineva vrea să-ți ia prin judecată un bou, dă-i altul; cine vrea să câștige de la tine prin judecată caftanul, dă-i și cămașa, cine îți scoate un dinte dintr-o falcă, întoarce-i și cealaltă falcă.
 
@@ -889,7 +889,7 @@ Greșelile mele de mai înainte netezește-le și șterge-le, așa cum și eu ne
 
 Pentru că a ta este stăpânirea și puterea și hotărârea ta.
 
-Marc. XI, 25. Dacă vă rugați, mai întâi de toate să nu țineți răul asupra nimănui.
+Marc. XI, 25. Dacă vă rugați, mai întâi de toate să nu purtați rău nimănui.
 
 <!-- vol. 24, p. 845 --> 26. Iar dacă nu le iertați oamenilor nedreptatea, nici tatăl nu vă va ierta nedreptatea voastră.
 
@@ -1257,7 +1257,7 @@ Ioan VI, 10. Și a spus Isus: spuneți-le tuturor să se culce pe iarbă.
 
 61. Și Isus le-a spus: sunteți atât de încurcați, încât vi se pare greu ceea ce spun despre ce a fost, și este, și va fi întotdeauna omul.
 
-63. Omul este spirit în trup, și numai spiritul dă viață, iar trupul nu dă viață. În cuvintele care vi se par atât de încâlcite eu n-am spus doar nimic altceva decât că spiritul este viața.
+63. Omul este spirit în trup, și numai spiritul dă viață, iar trupul nu dă viață. În cuvintele care vi se par atât de încâlcite eu doar n-am spus nimic altceva decât că spiritul este viața.
 
 Luc. X, 1. Apoi Isus a ales dintre cei apropiați ai săi șaptezeci de oameni și i-a trimis în acele locuri unde voia să ajungă el însuși.
 
@@ -1289,7 +1289,7 @@ Vă vor goni cum gonesc lupii oile, dar voi să nu vă pierdeți cumpătul, răb
 
 27. Ceea ce le veți spune la doi sau la trei se va răspândi printre mii.
 
-28. Și mai ales, nu vă temeți de cei care vă pot ucide trupul: sufletelor voastre ele nu le pot face nimic. Așa că nu vă temeți de ei. Ci temeți-vă să nu se nimicească trupurile și sufletele, dacă vă veți abate de la împlinirea voii tatălui, de aceasta să vă temeți.
+28. Și mai ales, nu vă temeți de cei care vă pot ucide trupul: sufletelor voastre ei nu le pot face nimic. Așa că nu vă temeți de ei. Ci temeți-vă să nu se nimicească trupurile și sufletele, dacă vă veți abate de la împlinirea voii tatălui, de aceasta să vă temeți.
 
 29. Pe o copeică se dau cinci vrăbii, și nici ele nu mor fără voia tatălui.
 
@@ -1361,7 +1361,7 @@ Mai mult decât orice pierde viața spiritului: lăcomia de câștig, agonisirea
 
 <!-- vol. 24, p. 863 --> Viața trupească — aceasta este bogăția străină, închipuită, încredințată nouă, pe care trebuie s-o folosim așa încât să primim bogăția noastră adevărată.
 
-Dacă la un om bogat va trăi un vechil și va ști că, oricât i-ar sluji stăpânului, stăpânul îl va concedia și îl va lăsa cu nimic, atunci acest vechil va lucra cu minte dacă, cât timp mai cârmuiește bogăția străină, va face bine oamenilor. Atunci, chiar dacă stăpânul îl va da afară, cei cărora le-a făcut bine îl vor primi și îl vor hrăni. Același lucru trebuie să-l facă oamenii cu viața lor trupească. Viața trupească este acea bogăție străină pe care ei o cârmuiesc numai pentru o vreme. Dacă vor folosi bine această bogăție străină, își vor primi bogăția lor adevărată.
+Dacă la un om bogat va trăi un vechil și va ști că, oricât i-ar sluji stăpânului, stăpânul îi va face socoteala și îl va lăsa cu nimic, atunci acest vechil va lucra cu minte dacă, cât timp mai cârmuiește bogăția străină, va face bine oamenilor. Atunci, chiar dacă stăpânul îl va da afară, cei cărora le-a făcut bine îl vor primi și îl vor hrăni. Același lucru trebuie să-l facă oamenii cu viața lor trupească. Viața trupească este acea bogăție străină pe care ei o cârmuiesc numai pentru o vreme. Dacă vor folosi bine această bogăție străină, își vor primi bogăția lor adevărată.
 
 Dacă nu ne vom da averea noastră falsă, nu ni se va da cea adevărată. Nu se poate sluji vieții false a trupului și spiritului; trebuie să slujești uneia sau celuilalt. Nu se poate sluji bogăției și lui Dumnezeu. Ceea ce este mare înaintea oamenilor, aceea este — urâciune înaintea lui Dumnezeu. Înaintea lui Dumnezeu bogăția este un rău. Bogatul e vinovat chiar prin aceea că mănâncă mult și cu lux, când săracii flămânzesc la ușile lui. Și toți știu că proprietatea pe care nu o dai altora este neîmplinirea voii tatălui.
 
@@ -1373,7 +1373,7 @@ Un om, Zaheu, a auzit învățătura lui Isus și a crezut în ea și, poftindu-
 
 Binele nu se poate măsura cu nimic; nu se poate spune cine a făcut mai mult, cine mai puțin. Văduva care dă ultimul sfert de copeică <!-- vol. 24, p. 864 --> dă mai mult decât bogatul care dă mii. El nu poate fi măsurat nici prin ce este folositor și nefolositor.
 
-Pildă despre cum trebuie făcut binele să fie femeia aceea căreia i s-a făcut milă de Isus și i-a turnat, fără socoteală, pe picioare mir scump de 300 de ruble. Iuda a spus că ea a făcut un lucru prostesc, că din aceștia s-ar fi putut hrăni mulți. Dar Iuda era hoț, el a mințit și, vorbind de folosul trupesc, nu se gândea la săraci. Nu folosul trebuie, nu cantitatea, ci trebuie întotdeauna, în orice clipă, împlinirea voii tatălui — întotdeauna, în orice clipă, să-i iubești pe alții și să le dai ce e al tău.
+Pildă despre cum trebuie făcut binele să fie femeia aceea căreia i s-a făcut milă de Isus și i-a turnat nebunește pe picioare untdelemn scump de 300 de ruble. Iuda a spus că ea a făcut un lucru prostesc, că din asta s-ar fi putut hrăni mulți. Dar Iuda era hoț, el a mințit și, vorbind de folosul trupesc, nu se gândea la săraci. Nu folosul trebuie, nu cantitatea, ci trebuie întotdeauna, în orice clipă, împlinirea voii tatălui — întotdeauna, în orice clipă, să-i iubești pe alții și să le dai ce e al tău.
 
 Luc. VIII, 19; Mat. XII, 46. Și au venit odată la Isus mama și frații lui și nu puteau nicicum să se vadă cu el, pentru că era mult popor în jurul lui Isus.
 
@@ -1423,7 +1423,7 @@ Luc. IX, 23. Și a spus Isus tuturor: cine vrea să meargă după mine, acela s�
 
 Luc. XII, 15. Și a spus Isus: păziți-vă deci de bogăție, pentru că viața ta nu vine din aceea că ai mai mult decât alții.
 
-16. Era un om bogat, și i s-a născut multă pâine.
+16. Era un om bogat, și i-a rodit multă pâine.
 
 17, 18. Și se gândește el în sine: ia să-mi prefac hambarele, să zidesc altele mari și să strâng acolo toate bogățiile mele.
 
@@ -1463,7 +1463,7 @@ Luc. XII, 54. Ca să înțelegi aceasta, nu trebuie nicio înțelepciune, oricin
 
 28. Pentru că oricine, înainte de a începe ceva, va socoti: este folositor ceea ce face, și dacă este folositor, face, iar dacă nu e folositor, lasă. Oricine zidește o casă doar se așază mai întâi și socotește: câți bani trebuie, câți are și dacă îi vor ajunge ca s-o termine.
 
-29. Ca să nu se întâmple că a început să zidească și n-a terminat, și oamenii râd.
+29. Ca să nu se întâmple așa: a început să zidească și n-a terminat, și oamenii râd.
 
 30. Tot așa și acela care vrea să trăiască viața trupească trebuie mai întâi să socotească: poate el duce la capăt ceea ce îl ocupă?
 
@@ -1505,7 +1505,7 @@ Un om era vechilul unui stăpân bogat, și vede vechilul că, iată-iată, stă
 
 9. Așa trebuie să facem și noi cu bogăția nedreaptă și falsă. S-o dăm ca să primim viața spiritului.
 
-10. Și dacă regretăm asemenea fleacuri, cum e bogăția, pentru viața spiritului, atunci nici nu ni se va da ea.
+10. Și dacă ne pare rău să dăm asemenea fleacuri, cum e bogăția, pentru viața spiritului, atunci nici nu ni se va da ea.
 
 11. Dacă nu vom da bogăția falsă, nu ni se va da nici viața noastră proprie.
 
@@ -1537,7 +1537,7 @@ Un om era vechilul unui stăpân bogat, și vede vechilul că, iată-iată, stă
 
 27. Atunci bogătașul spune: ei, atunci, părinte Avraame, trimite-l pe Lazăr cel râios măcar la mine acasă.
 
-28. Am cinci frați, mi-e milă de ei. Să le povestească totul și să le arate cât de vătămătoare este bogăția. Altfel să nu ajungă și ei în chinul acesta.
+28. Am cinci frați, mi-e milă de ei. Să le povestească totul și să le arate cât de vătămătoare este bogăția. Ca nu cumva să ajungă și ei în chinul acesta.
 
 29. Iar Avraam spune: ei știu și așa că e vătămătoare. Le-au spus-o și Moise, și toți profeții.
 
@@ -1599,15 +1599,15 @@ Luc. XII, 41. S-a întâmplat odată că Isus ședea cu ucenicii în fața cutie
 
 Mat. XXVI, 6. S-a întâmplat ca Isus să fie în casa lui Simon cel râios.
 
-7. Și a intrat în casă o femeie. Și avea această femeie un ulcior cu mir scump, curat, de 300 de ruble. Isus le spusese ucenicilor că moartea lui este aproape. A auzit aceasta femeia și i s-a făcut milă de el, și a vrut să-i arate iubirea ei și să-i ungă capul cu mir. Și a uitat de toate, și cât costă mirul, și a spart tot ulciorul, și i-a uns capul și picioarele, și a vărsat tot mirul.
+7. Și a intrat în casă o femeie. Și avea această femeie un ulcior cu untdelemn scump, curat, de 300 de ruble. Isus le spusese ucenicilor că moartea lui este aproape. A auzit aceasta femeia și i s-a făcut milă de el, și a vrut să-i arate iubirea ei și să-i ungă capul cu untdelemn. Și a uitat de toate, și cât costă untdelemnul, și a spart tot ulciorul, și i-a uns capul și picioarele, și a vărsat tot untdelemnul.
 
-<!-- vol. 24, p. 872 --> 8. Și au început ucenicii să judece între ei că rău a făcut ea. Și Iuda, cel care l-a vândut mai târziu pe Isus, a spus: iată câtă bunătate s-a pierdut degeaba!
+<!-- vol. 24, p. 872 --> 8. Și au început ucenicii să judece între ei că rău a făcut ea. Și Iuda, cel care l-a vândut mai târziu pe Isus, a spus: iată câte bunuri s-au pierdut degeaba!
 
-9. S-ar fi putut vinde mirul acesta cu trei sute de ruble și câți săraci s-ar fi putut ajuta! Și au început ucenicii s-o mustre pe femeie, și ea s-a tulburat și nu știa dacă a făcut bine sau rău.
+9. S-ar fi putut vinde untdelemnul acesta cu trei sute de ruble și câți săraci s-ar fi putut ajuta! Și au început ucenicii s-o mustre pe femeie, și ea s-a tulburat și nu știa dacă a făcut bine sau rău.
 
 10. Atunci Isus le-a spus: în zadar o tulburați pe femeie: ea a făcut cu adevărat un bine, și în zadar pomeniți de săraci.
 
-11. Dacă vreți să le faceți bine săracilor, faceți — ei sunt întotdeauna. De ce să vorbiți atunci despre ei? Dacă vă e milă de săraci, duceți-vă, fie-vă milă de ei, faceți-le bine; iar ei i-a fost milă de mine și a făcut un bine adevărat, pentru că a dat tot ce avea. Cine dintre voi poate ști ce este necesar și ce nu este necesar? De unde știți voi că nu era necesar să se verse mirul pe mine? Ea m-a uns cu mir așa, măcar ca să-mi pregătească trupul pentru îngropare, și pentru aceasta este necesar.
+11. Dacă vreți să le faceți bine săracilor, faceți — ei sunt întotdeauna. De ce să vorbiți atunci despre ei? Dacă vă e milă de săraci, duceți-vă, fie-vă milă de ei, faceți-le bine; iar ei i-a fost milă de mine și a făcut un bine adevărat, pentru că a dat tot ce avea. Cine dintre voi poate ști ce este necesar și ce nu este necesar? De unde știți voi că nu era necesar să se verse untdelemnul pe mine? Ea m-a uns cu untdelemn așa, măcar ca să-mi pregătească trupul pentru îngropare, și pentru aceasta este necesar.
 
 13. Ea a împlinit cu adevărat voia tatălui, s-a uitat pe sine și i-a fost milă de altul, a uitat socotelile trupești și a dat tot ce avea.
 
@@ -1629,11 +1629,11 @@ Ca răspuns la cererea iudeilor de a le da dovezi ale adevărului învățături
 
 Iudeii nu l-au înțeles și căutau dovezi exterioare că el însuși este Hristosul despre care este scris în proorocii. La aceasta el le-a spus: nu cercetați cine sunt eu și dacă despre mine este scris în proorociile voastre, ci pătrundeți învățătura mea, ceea ce spun despre tatăl nostru comun. Pe mine, ca om, nu trebuie să mă credeți, dar trebuie să credeți ceea ce spun în numele tatălui comun al tuturor oamenilor. Nu trebuie să cercetați după înfățișare de unde sunt eu, ci trebuie să urmați învățătura mea. Acela care va urma învățătura mea va primi viața adevărată. Dovezi ale învățăturii mele nu pot fi. Ea este lumină. Și precum lumina nu poate fi luminată, tot așa nu se poate dovedi adevărul adevărului. Învățătura mea este — lumină; și cine o vede, acela are lumină și viață și aceluia n-ai ce să-i dovedești. Iar cine este în întuneric, acela trebuie să meargă la lumină.
 
-Dar iudeii l-au întrebat din nou: cine este el după trup? El le-a spus: eu sunt — ceea ce v-am spus de la început. Eu sunt om, fiul tatălui vieții. Numai acela care va înțelege despre sine același lucru și va împlini voia tatălui comun, numai acela va înceta să fie rob și va deveni liber. Pentru că numai greșeala care ia viața trupească drept viața adevărată ne face nelibere. Acela care va înțelege adevărul că viața este numai în împlinirea voii tatălui, numai acela va deveni liber și nemuritor. Precum robul nu rămâne pentru totdeauna în casa stăpânului, iar fiul rămâne pentru totdeauna, tot așa și omul care trăiește ca rob al trupului nu rămâne pentru totdeauna în viață; iar omul care împlinește prin spirit voia tatălui rămâne pentru totdeauna în viață.
+Dar iudeii l-au întrebat din nou: cine este el după trup? El le-a spus: eu sunt — ceea ce v-am spus de la început. Eu sunt om, fiul tatălui vieții. Numai acela care va înțelege despre sine același lucru și va împlini voia tatălui comun, numai acela va înceta să fie rob și va deveni liber. Pentru că numai greșeala care ia viața trupească drept viața adevărată ne face neliberi. Acela care va înțelege adevărul că viața este numai în împlinirea voii tatălui, numai acela va deveni liber și nemuritor. Precum robul nu rămâne pentru totdeauna în casa stăpânului, iar fiul rămâne pentru totdeauna, tot așa și omul care trăiește ca rob al trupului nu rămâne pentru totdeauna în viață; iar omul care împlinește prin spirit voia tatălui rămâne pentru totdeauna în viață.
 
 Ca să mă înțelegeți, trebuie să înțelegeți că tatăl meu nu este ceea ce este tatăl vostru, acela pe care îl numiți Dumnezeu. Tatăl vostru este un Dumnezeu trupesc, iar tatăl meu este — spiritul vieții. Tatăl vostru Dumnezeu este un Dumnezeu răzbunător, ucigaș de oameni, acela care îi execută pe oameni; iar tatăl meu dă viață. Și de aceea suntem copiii unor tați diferiți. Eu caut adevărul, iar voi vreți să mă ucideți pentru aceasta, ca să-i fiți pe plac Dumnezeului vostru. Dumnezeul vostru este — diavolul, principiul răului, și dacă voi <!-- vol. 24, p. 874 --> îi slujiți lui, atunci îi slujiți diavolului. Iar învățătura mea este că suntem fiii tatălui vieții, și acela care va crede în învățătura mea nu va vedea moartea. Iudeii au spus: cum poate omul să nu moară, dacă toți oamenii cei mai plăcuți lui Dumnezeu, chiar și Avraam, au murit? Cum poți să spui că tu și cei care vor crede în învățătura ta nu vor muri?
 
-La aceasta Isus a răspuns: eu nu spun nimic de la mine. Eu vorbesc despre chiar acel principiu al vieții pe care voi îl numiți Dumnezeu și care este în oameni. Acest principiu îl cunosc și nu se poate să nu-l cunosc, și îi cunosc voia și o împlinesc, și tocmai despre acest principiu al vieții spun că el a fost, și este, și va fi și că pentru el nu există moarte. Cererea de dovezi ale adevărului învățăturii mele seamănă cu situația în care oamenii ar începe să ceară dovezi de la un orb despre de ce și cum a văzut lumina.
+La aceasta Isus a răspuns: eu nu spun nimic de la mine. Eu vorbesc despre chiar acel principiu al vieții pe care voi îl numiți Dumnezeu și care este în oameni. Acest principiu îl cunosc și nu se poate să nu-l cunosc, și îi cunosc voia și o împlinesc, și tocmai despre acest principiu al vieții spun că el a fost, și este, și va fi și că pentru el nu există moarte. Cererea de dovezi ale adevărului învățăturii mele seamănă cu situația în care oamenii ar începe să ceară de la un orb dovezi: de ce și cum a văzut lumina.
 
 Orbul vindecat, rămânând același om care fusese înainte, ar putea spune numai că a fost orb, iar acum vede. Întocmai același lucru, și nimic mai mult, poate spune omul care nu înțelegea înainte sensul vieții sale și l-a înțeles. Un asemenea om ar spune numai că înainte nu cunoștea binele adevărat al vieții, iar acum îl cunoaște. Și precum orbul vindecat, dacă i se va spune că a fost vindecat nu cum trebuie, că omul care l-a vindecat este păcătos, că trebuie să se vindece altfel, vindecatul nu poate spune nimic altceva decât: eu nu știu nimic despre corectitudinea vindecării și despre păcătoșenia celui ce m-a vindecat; despre o altă vindecare, mai bună, știu un singur lucru, că am fost orb, iar acum văd.
 
@@ -1663,7 +1663,7 @@ Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte
 
 7. Tocmai aceasta le și arăt oamenilor, le arăt că slujirea lor a lui Dumnezeu este mincinoasă, și tocmai pentru aceasta mă urăsc.
 
-8. Voi mergeți la sărbătoare, iar eu voi merge când îmi va veni.
+8. Voi mergeți la sărbătoare, iar eu voi merge când voi socoti eu.
 
 9. Și frații au plecat, iar el a rămas și a venit abia mai târziu, la mijlocul sărbătorii.
 
@@ -1683,7 +1683,7 @@ Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte
 
 19. Legea voastră a lui Moise nu este legea tatălui, și de aceea cei care o urmează nu împlinesc legea tatălui și fac răul și minciuna.
 
-21. Eu vă învăț împlinirea singurei voi a tatălui, și în învățătura mea nu poate fi contradicție.
+21. Eu vă învăț împlinirea numai a voii tatălui, și în învățătura mea nu poate fi contradicție.
 
 <!-- vol. 24, p. 877 --> 22, 23. Iar legea voastră scrisă a lui Moise este toată plină de contradicții.
 
@@ -1701,7 +1701,7 @@ Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte
 
 33. Eu sunt aici, între voi, nu pentru multă vreme a vieții mele, vă arăt calea spre acel izvor al vieții din care am ieșit.
 
-34. Iar voi îmi cereți dovezi și vreți să mă osândiți. Dacă nu cunoașteți această cale, atunci, când nu voi mai fi, n-o veți mai găsi nicidecum. Nu trebuie să mă judecați pe mine, ci trebuie să mergeți după mine. Cine va face ceea ce spun eu, acela va afla dacă este adevărat ceea ce vă spun.
+34. Iar voi mi-ați cerut dovezi și vreți să mă osândiți. Dacă nu cunoașteți această cale, atunci, când nu voi mai fi, n-o veți mai găsi nicidecum. Nu trebuie să mă judecați pe mine, ci trebuie să mergeți după mine. Cine va face ceea ce spun eu, acela va afla dacă este adevărat ceea ce vă spun.
 
 38. Acela pentru care viața trupească nu a devenit hrană a spiritului, acela nu caută adevărul cum caută însetatul apa, acela nu mă poate înțelege. Iar acela care însetează după adevăr, acela să vină la mine și să bea. Și acela care va crede în învățătura mea va primi viața adevărată.
 
@@ -1749,7 +1749,7 @@ Ioan VIII, 12. Altă dată Isus vorbea cu ortodocșii și le-a spus: dovezi ale 
 
 26. Eu sunt fiul omului, care recunoaște spiritul drept tatăl său; și ceea ce am înțeles de la tatăl, aceea spun lumii.
 
-28. Și când îl veți înălța în voi pe fiul omului, atunci veți afla ce sunt eu, pentru că eu fac și spun nu de la mine, ca om, ci ceea ce m-a învățat tatăl, aceea spun, aceea învăț.
+28. Și când îl veți preamări în voi pe fiul omului, atunci veți afla ce sunt eu, pentru că eu fac și spun nu de la mine, ca om, ci ceea ce m-a învățat tatăl, aceea spun, aceea învăț.
 
 <!-- vol. 24, p. 879 --> 29. Și acela care m-a trimis, acela este întotdeauna cu mine, și tatăl nu mă va părăsi, pentru că fac voia lui.
 
@@ -1831,7 +1831,7 @@ Ioan VIII, 12. Altă dată Isus vorbea cu ortodocșii și le-a spus: dovezi ale 
 
 18. Iudeii n-au crezut că el fusese înainte întunecat, iar acum s-a luminat, până ce nu i-au chemat pe părinții lui și nu i-au întrebat.
 
-19. Acesta este fiul vostru, cel care a fost întunecat din naștere. Cum de s-a luminat acum?
+19. Oare acesta este fiul vostru, cel care a fost întunecat din naștere? Cum de s-a luminat acum?
 
 20. Părinții au spus: știm că acesta este fiul nostru și că a fost întunecat din naștere.
 
@@ -1955,7 +1955,7 @@ Ca să nu te gândești la răsplăți și la înălțarea ta, trebuie să înț
 
 Trebuie să înțelegi în ce stă viața adevărată. Viața adevărată se arată întotdeauna prin aceea că cel pierdut se întoarce la ai săi, că cel care dormea se trezește. Oamenii care au viața adevărată, care s-au întors la principiul lor, dacă au viața adevărată, nu se pot socoti omenește cine e mai bun și cine e mai rău, ci, fiind părtași la viața tatălui, se pot numai bucura de întoarcerea celui pierdut la tatăl. Dacă un fiu, rătăcind de pe drum și plecând de la tată, s-ar căi și s-ar întoarce la tatăl, oare ceilalți fii ai tatălui ar putea pizmui bucuria tatălui și să nu se bucure de întoarcerea fratelui?
 
-Ca să crezi în învățătură, ca să-ți schimbi viața și să împlinești învățătura, nu sunt necesare dovezi exterioare, nici făgăduința răsplăților, ci este necesară înțelegerea limpede a ceea ce este viața adevărată. Dacă oamenii cred că sunt stăpânii cu deplină putere ai vieții, că viața le este dată pentru desfătarea trupească, atunci, limpede, orice faptă de jertfă pentru altul li se va părea o faptă vrednică de răsplată, și fără răsplată nu vor ceda nimic. Dacă de la dijmașii care au uitat că li s-a dat livada cu condiția să-i dea roadele stăpânului s-ar cere dijma fără răsplată, ei l-ar alunga pe strângătorul dijmei, și dacă li s-ar mai aminti iar și iar de dijmă, l-ar ucide. Așa privesc și acei oameni care se recunosc stăpâni ai vieții și nu înțeleg că viața este darul înțelegerii, care cere împlinirea voii sale. Ca să crezi și să faci, trebuie să înțelegi că omul nu poate face nimic singur, că dacă își dă viața trupească pentru bine, el nu face nimic pentru care ar trebui să fie mulțumit și răsplătit. Trebuie să înțelegi că, făcând binele, omul face numai ceea ce este dator, ceea ce nu poate să nu împlinească. Numai înțelegându-și astfel viața, omul poate crede așa încât să facă adevăratele fapte ale binelui.
+Ca să crezi în învățătură, ca să-ți schimbi viața și să împlinești învățătura, nu sunt necesare dovezi exterioare, nici făgăduința răsplăților, ci este necesară înțelegerea limpede a ceea ce este viața adevărată. Dacă oamenii cred că sunt stăpânii cu deplină putere ai vieții, că viața le este dată pentru desfătarea trupească, atunci, limpede, orice faptă de jertfă pentru altul li se va părea o faptă vrednică de răsplată, și fără răsplată nu vor ceda nimic. Dacă de la dijmașii care au uitat că li s-a dat livada cu condiția să-i dea roadele stăpânului s-ar cere dijma fără răsplată, ei l-ar alunga pe strângătorul dijmei, și dacă li s-ar mai aminti iar și iar de dijmă, l-ar ucide. Așa privesc și acei oameni care se recunosc stăpâni ai vieții și nu înțeleg că viața este darul înțelegerii, care cere împlinirea voii sale. Ca să crezi și să faci, trebuie să înțelegi că omul nu poate face nimic singur, că dacă își dă viața trupească pentru bine, el nu face nimic pentru care ar trebui să i se mulțumească și să fie răsplătit. Trebuie să înțelegi că, făcând binele, omul face numai ceea ce este dator, ceea ce nu poate să nu împlinească. Numai înțelegându-și astfel viața, omul poate crede așa încât să facă adevăratele fapte ale binelui.
 
 În această înțelegere a vieții constă împărăția cerului pe care o propovăduiesc eu. Această împărăție a cerului este — nevăzută, nu este dintre acelea care se arată undeva așa încât să poată fi arătată cu degetul. Împărăția cerului este în înțelegerea oamenilor. Lumea toată a trăit și trăiește ca mai înainte: mănâncă, beau, fac negoț, se însoară, mor, și alături <!-- vol. 24, p. 887 --> de aceasta, în sufletele oamenilor, trăiește împărăția cerului. Împărăția cerului — aceasta este înțelegerea vieții, ca un copac primăvara, care crește singur din sine.
 
@@ -2021,7 +2021,7 @@ Luc. XV, 8. Și dacă unei femei i se pierde o copeică, doar mătură toată ca
 
 XIV, 8. Și le-a mai spus o pildă despre faptul că nu se pot înălța cei care trăiesc în voia lui Dumnezeu. El a spus: dacă te cheamă la prânz, nu te așeza în colțul din față; altfel te bagi în colțul din față, și vine cineva mai de cinste decât tine, și gazda îți va spune:
 
-9. Ieși de acolo și lasă-l pe acela, care e mai bun decât tine. Atunci te vei rușina mai rău.
+9. Ieși de acolo și lasă-l pe cel care e mai bun decât tine. Atunci te vei rușina mai rău.
 
 10. Ci tu mai bine așază-te pe locul cel mai de pe urmă. Atunci gazda te va găsi și te va chema la locul de cinste; atunci vei avea cinste.
 
@@ -2133,13 +2133,13 @@ Mt. XXV, 1. Împărăția cerului iată cu ce seamănă: Au ieșit zece fecioare
 
 4. Iar cele deștepte au luat opaițele și untdelemn de rezervă.
 
-5. Până să-l aștepte pe mire, ele au ațipit.
+5. Cât timp îl așteptau pe mire, ele au ațipit.
 
 6. Când a venit mirele,
 
 7. Cele proaste au văzut că au puțin untdelemn.
 
-10. Și s-au dus să caute să cumpere, iar până să umble ele, a venit mirele. Și fecioarele deștepte, care aveau untdelemn, au intrat cu el, și ușile s-au închis.
+10. Și s-au dus să caute să cumpere, iar cât timp umblau ele, a venit mirele. Și fecioarele deștepte, care aveau untdelemn, au intrat cu el, și ușile s-au închis.
 
 Fecioarele trebuiau să meargă numai pentru aceasta, ca să-l întâmpine pe mire cu opaițele, dar ele au uitat că nu aceea e prețios, ca opaițele să ardă, ci ca ele să ardă la vreme. Iar pentru ca ele să ardă, trebuiau să ardă fără încetare. Viața este numai pentru a-l înălța pe fiul omului, iar fiul omului este întotdeauna. El nu este în timp, și de aceea, slujindu-i, trebuie să trăiești în afara timpului, numai în prezent.
 
@@ -2169,7 +2169,7 @@ Iar cei care n-au trăit prin fiul omului, aceia nu i-au slujit, n-au înțeles 
 
 Omul se naște cu cunoașterea vieții adevărate a împlinirii voii tatălui. Copiii trăiesc prin ea, la copii se vede în ce stă voia tatălui. Ca să înțelegi învățătura lui Isus, trebuie să înțelegi viața copiilor și să fii întocmai ca ei. Copiii trăiesc întotdeauna în voia tatălui, fără să încalce cele cinci porunci. Ei nici nu le-ar încălca vreodată, dacă cei mari nu i-ar duce în ispite. Ducându-i pe copii în ispita încălcării poruncilor, oamenii îi pierd pe copii. Ispitindu-i pe copii, oamenii fac cu ei același lucru pe care l-ar face un om care i-ar lega altuia o piatră de moară de gât și l-ar arunca în râu. Dacă n-ar fi ispite, lumea ar fi fericită. Lumea este nefericită numai din cauza ispitelor. Ispitele — sunt răul pe care îl fac oamenii pentru binele închipuit al vieții vremelnice. Ispitele îi pierd pe oameni, și de aceea trebuie să jertfești totul ca să nu cazi în ispită. Ispita împotriva primei porunci constă în aceea că oamenii se socotesc curați înaintea oamenilor, iar pe alții datori față de ei. Ca să nu cadă în această ispită, oamenii trebuie să-și amintească faptul că toți oamenii sunt întotdeauna nesfârșit de datori față de tatăl și că se pot curăța de această datorie numai iertându-și frații. Și de aceea oamenii trebuie să le ierte oamenilor jignirile, fără să se tulbure de faptul că cel care jignește va jigni iar și iar.
 
-Ori de câte ori ar fi jignit omul, el trebuie să ierte și să ierte, fără să țină minte răul, pentru că împărăția cerului este cu putință numai prin iertare. Dacă nu iertăm, facem același lucru pe care l-a făcut datornicul. Un datornic cu o datorie mare a venit la stăpân și a început să ceară milă. Stăpânul i-a iertat totul. Datornicul s-a dus și a început să-l sugrume pe datornicul său, pe acela care îi datora puțin. Doar noi, ca să avem viață, trebuie să împlinim voia tatălui; iar de la tatăl cerem iertare pentru că nu i-am împlinit întru totul voia și nădăjduim să primim această iertare. Atunci ce facem dacă nu iertăm? Facem ceea ce ne temem pentru noi. Voia tatălui — este binele, iar răul — este ceea ce <!-- vol. 24, p. 895 --> ne desparte de tatăl, atunci cum să nu ne străduim să stingem răul cât mai repede, pentru că răul ne pierde și ne lipsește de viață. Răul ne leagă în pieirea trupească. Cât vom dezlega din acest rău, atâta dobândim viață. Dacă răul nu ne desparte și suntem uniți prin iubire, atunci avem tot ce putem dori.
+Ori de câte ori ar fi jignit omul, el trebuie să ierte și să ierte, fără să țină minte răul, pentru că împărăția cerului este cu putință numai prin iertare. Dacă nu iertăm, facem același lucru pe care l-a făcut datornicul. Un datornic cu o datorie mare a venit la stăpân și a început să ceară milă. Stăpânul i-a iertat totul. Datornicul s-a dus și a început să-l sugrume pe datornicul său, pe acela care îi datora puțin. Doar noi, ca să avem viață, trebuie să împlinim voia tatălui; iar de la tatăl cerem iertare pentru că nu i-am împlinit întru totul voia și nădăjduim să primim această iertare. Atunci ce facem dacă nu iertăm? Facem lucrul de care ne temem pentru noi. Voia tatălui — este binele, iar răul — este ceea ce <!-- vol. 24, p. 895 --> ne desparte de tatăl, atunci cum să nu ne străduim să stingem răul cât mai repede, pentru că răul ne pierde și ne lipsește de viață. Răul ne leagă în pieirea trupească. Cât vom dezlega din acest rău, atâta dobândim viață. Dacă răul nu ne desparte și suntem uniți prin iubire, atunci avem tot ce putem dori.
 
 Ispita împotriva celei de-a doua porunci stă în aceea că noi credem că femeia este făcută pentru desfătarea trupească și că, lăsând o femeie și luând alta, primim mai multă desfătare. Ca să nu cazi în această ispită, trebuie să-ți amintești că voia tatălui nu este ca omul să se desfete cu farmecul femeiesc, ci ca fiecare, alegându-și o soție, să se unească cu ea într-un singur trup. Voia tatălui este ca fiecare bărbat să aibă o soție, iar fiecare soție să aibă un bărbat. Dacă un bărbat se va ține de o singură soție, atunci toți vor avea soții și toate vor avea bărbați. Iar de aceea cine își schimbă soția o lipsește pe soție de bărbat și îl face pe alt bărbat să o lase pe a sa și s-o ia pe cea lăsată. Se poate să nu ai soție, dar să ai mai mult de o soție nu se poate, pentru că, având altă soție, încalci voia tatălui, care constă în unirea unui singur bărbat cu o singură soție.
 
@@ -2189,9 +2189,9 @@ Mt. XIX, 13. Au adus odată la Isus niște copii, dar ucenicii au început să-i
 
 14. Isus a văzut că ucenicii îi gonesc pe copii, s-a întristat, și a spus: în zadar îi alungați pe copii. Ei sunt oamenii cei mai buni, pentru că toți copiii trăiesc în voia tatălui. Ei sunt de bună seamă deja în împărăția cerului.
 
-Luc. XVIII, 17. Voi nu trebuie să-i goniți, ci să învățați de la ei, pentru că, ca să trăiești în voia tatălui, trebuie să trăiești așa cum trăiesc copiii. Copiii împlinesc întotdeauna cele cinci porunci pe care vi le-am dat: copiii nu se ceartă, nu țin răul pe oameni, copiii nu desfrânează, copiii nu jură în nimic, copiii nu se împotrivesc răului, nu se judecă cu nimeni, copiii nu cunosc deosebirea dintre poporul lor și unul străin, și de aceea sunt mai buni decât cei mari și sunt în împărăția cerului.
+Luc. XVIII, 17. Voi nu trebuie să-i goniți, ci să învățați de la ei, pentru că, ca să trăiești în voia tatălui, trebuie să trăiești așa cum trăiesc copiii. Copiii împlinesc întotdeauna cele cinci porunci pe care vi le-am dat: copiii nu se ceartă, nu poartă rău oamenilor, copiii nu desfrânează, copiii nu jură în nimic, copiii nu se împotrivesc răului, nu se judecă cu nimeni, copiii nu cunosc deosebirea dintre poporul lor și unul străin, și de aceea sunt mai buni decât cei mari și sunt în împărăția cerului.
 
-Mt. XVIII, 3. Dacă nu veți renunța la toate ispitele trupului și nu veți deveni la fel ca acești copii, nu veți fi în împărăția cerului.
+Mt. XVIII, 3. Dacă nu veți renunța la toate ispitele trupului și nu veți deveni la fel ca copiii, nu veți fi în împărăția cerului.
 
 5. Numai acela care înțelege că copiii sunt mai buni decât noi, pentru că nu încalcă voia tatălui, numai acela înțelege învățătura mea.
 
@@ -2207,7 +2207,7 @@ Mt. XVIII, 10. Noi nu putem să-i disprețuim pe copii, pentru că ei sunt mai b
 
 8. Și de aceea dă totul, jertfește totul, numai să nu cazi în ispită. Vulpea, dacă se prinde în capcană, își răsucește laba și scapă, și laba se vindecă, și ea rămâne vie. Așa să faci și tu. Dă totul, numai să nu te împotmolești în ispită.
 
-Luc. XVII, 3. Păziți-vă deci de ispita împotriva primei porunci: să nu ai rău pe oameni, în aceea că oamenii ne jignesc și noi vrem să ne răzbunăm pe ei.
+Luc. XVII, 3. Păziți-vă deci de ispita împotriva primei porunci: să nu porți rău oamenilor, în aceea că oamenii ne jignesc și noi vrem să ne răzbunăm pe ei.
 
 Mt. XVIII, 15. Dacă te jignește un om, amintește-ți că el este fiul aceluiași tată și frate cu tine. Dacă te-a jignit, du-te și mustră-l între patru ochi. Dacă te va asculta, ai câștig: vei avea un frate nou.
 
@@ -2215,7 +2215,7 @@ Mt. XVIII, 15. Dacă te jignește un om, amintește-ți că el este fiul aceluia
 
 Luc. XVII, 3 și 4. Și dacă se va căi, iartă-l. Și dacă de șapte ori te va jigni și de șapte ori îți va spune: iartă-mă, — iartă-l.
 
-Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred în învățătura mea. Dacă nici adunarea n-o va asculta, atunci iartă-l și nu mai avea de-a face cu el.
+Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred în învățătura mea. Dacă nu va asculta nici de adunare, atunci iartă-l și nu mai avea de-a face cu el.
 
 23. Pentru că împărăția lui Dumnezeu iată cu ce se poate asemăna. A început un împărat să-și facă socotelile cu dijmașii săi.
 
@@ -2243,7 +2243,7 @@ Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred
 
 35. Așa vă va face și tatăl vouă, dacă nu-i veți ierta din toată inima pe toți cei care sunt vinovați față de voi.
 
-Mt. V, 25. Doar tu știi că, dacă se iscă o ceartă cu un om, e mai bine să te împaci cu el înainte de a ajunge la judecată. Știi și faci așa pentru că știi — dacă ajungi la judecată, pierzi mai mult. Ei, același lucru e și cu orice ură. Dacă știi că ura e un lucru rău și te îndepărtează de tatăl, atunci dezleagă-te mai repede de ură și împacă-te.
+Mt. V, 25. Doar tu știi că, dacă se iscă o ceartă cu un om, e mai bine să te împaci cu el înainte de a ajunge la judecată. Știi și faci așa pentru că știi — dacă ajungi la judecată, pierzi mai mult. Ei, același lucru e și cu orice răutate. Dacă știi că răutatea e un lucru rău și te îndepărtează de tatăl, atunci dezleagă-te mai repede de răutate și împacă-te.
 
 XVIII, 18. Doar știți singuri că, precum vă veți lega pe pământ, așa veți fi și înaintea tatălui. Iar precum vă veți dezlega pe pământ, veți fi dezlegați și înaintea tatălui.
 
@@ -2253,7 +2253,7 @@ XVIII, 18. Doar știți singuri că, precum vă veți lega pe pământ, așa ve�
 
 Mt. XIX, 3; Marc. X, 2. Păziți-vă de ispita împotriva celei de-a doua porunci, în aceea că oamenii își schimbă soțiile.
 
-S-au apropiat odată de Isus învățătorii ortodocși și, ispitindu-l, au spus: poate omul să-și lase soția?
+S-au apropiat odată de Isus învățătorii ortodocși și, iscodindu-l, au spus: poate omul să-și lase soția?
 
 Mt. XIX, 4. El le-a spus: chiar de la început omul a fost făcut mascul și femelă, aceasta este voia tatălui.
 
@@ -2281,7 +2281,7 @@ Atunci Isus i-a spus: împăratul doar nu ia biruri de la fiii săi, și, în af
 
 27. Iar dacă ți se cer biruri, dă, dar nu pentru că ești dator, ci pentru că nu te poți împotrivi răului. Altfel împotrivirea față de rău va produce un rău mai mare.
 
-XXII, 16. Altă dată ortodocșii s-au înțeles cu funcționarii împărătești și s-au dus la Isus ca să-l prindă în cuvinte. Ei i-au spus: iată, tu înveți toate după adevăr.
+XXII, 16. Altă dată ortodocșii s-au întovărășit cu funcționarii împărătești și s-au dus la Isus ca să-l prindă în cuvinte. Ei i-au spus: iată, tu înveți toate după adevăr.
 
 17. Spune-ne, suntem datori să-i plătim biruri împăratului sau nu?
 
@@ -2323,7 +2323,7 @@ Ioan VIII, 3. Au adus odată ortodocșii la Isus o femeie și spun:
 
 6. Isus nu răspundea nimic și aștepta să-și vină în fire.
 
-7. Dar ei s-au ținut de el și îl întrebau ce va osândi pentru această femeie? Atunci el a spus: cine dintre voi este fără greșeală, acela să arunce cel dintâi cu piatra în ea.
+7. Dar ei s-au ținut de el și îl întrebau ce osândă îi va da acestei femei? Atunci el a spus: cine dintre voi este fără greșeală, acela să arunce cel dintâi cu piatra în ea.
 
 8. Și mai mult n-a spus nimic.
 
@@ -2373,7 +2373,7 @@ Mt. XXII, 23. Și ei nu înțelegeau aceasta. Și iată, s-au apropiat staroveri
 
 Luc. XX, 34. Isus le-a spus: voi ori încurcați înadins, ori nu înțelegeți în ce stă trezirea vieții. Oamenii în viața aceasta se însoară și se mărită.
 
-Iar cei care vor dobândi viața veșnică și trezirea din moarte nu se însoară și nu se mărită.
+Iar cei care vor merita viața veșnică și trezirea din moarte nu se însoară și nu se mărită.
 
 36. Pentru că nici nu mai pot muri. Ei se unesc cu tatăl.
 
@@ -2461,17 +2461,17 @@ Poporul va pieri și se va risipi dacă îl vom lăsa pe acest om, și nu-l vom 
 
 Isus, deși știa de aceasta, s-a dus la Ierusalim pentru sărbătoarea paștelui. Ucenicii îl rugau să nu se ducă, dar Isus a spus: ceea ce vor să facă ortodocșii cu mine și tot ceea ce pot face alți oameni nu poate schimba pentru mine adevărul.
 
-Dacă văd lumina, știu unde sunt și unde mă duc. Numai acela care nu cunoaște adevărul se poate teme de ceva și se poate îndoi de orice ar fi. Numai acela care nu vede, numai acela se poticnește. Și el s-a dus spre Ierusalim. Pe drum s-a oprit în Betania. În Betania, Maria a turnat peste el un ulcior de mir scump. Știind că îl așteaptă o moarte trupească apropiată, <!-- vol. 24, p. 907 --> Isus le-a spus ucenicilor, la mustrările lor către Maria, de ce a turnat peste el atâta mir scump, că mirul pe care l-a turnat ea este pregătirea trupului său pentru moarte.
+Dacă văd lumina, știu unde sunt și unde mă duc. Numai acela care nu cunoaște adevărul se poate teme de ceva și se poate îndoi de orice ar fi. Numai acela care nu vede, numai acela se poticnește. Și el s-a dus spre Ierusalim. Pe drum s-a oprit în Betania. În Betania, Maria a turnat peste el un ulcior de untdelemn scump. Știind că îl așteaptă o moarte trupească apropiată, <!-- vol. 24, p. 907 --> Isus le-a spus ucenicilor, la mustrările lor către Maria, de ce a turnat peste el atâta untdelemn scump, că mirul pe care l-a turnat ea este pregătirea trupului său pentru moarte.
 
-Când Isus a ieșit din Betania și s-a dus la Ierusalim, mulțimi de popor l-au întâmpinat și au mers după el, și aceasta i-a convins și mai mult pe ortodocși de necesitatea de a-l ucide. Ei așteptau numai prilejul să-l prindă. Și Isus știa aceasta. El știa și că cel mai mic cuvânt neprevăzător al lui împotriva legii va fi acum prilej de execuție, dar, în ciuda acestui fapt, a intrat în templu și a vestit din nou că vechea cinstire a lui Dumnezeu a iudeilor prin jertfe și libații este — mincinoasă, și și-a propovăduit învățătura. Dar învățătura lui, întemeiată pe profeți, era de așa natură încât ortodocșii tot nu puteau găsi o încălcare vădită a legii, una pentru care să-l poată da morții, cu atât mai mult cu cât cea mai mare parte a poporului de rând era de partea lui Isus. Dar aici, la sărbătoare, erau păgâni și, auzind despre învățătura lui Isus, voiau să vorbească cu Isus despre învățătura lui. Ucenicii, auzind de aceasta, s-au speriat. Se temeau ca în discuția cu păgânii Isus să nu se dea de gol și să nu înrăiască poporul. La început n-au vrut să-l aducă pe Isus laolaltă cu păgânii, dar apoi s-au hotărât să-i spună că păgânii vor să vorbească cu el.
+Când Isus a ieșit din Betania și s-a dus la Ierusalim, mulțimi de popor l-au întâmpinat și au mers după el, și aceasta i-a convins și mai mult pe ortodocși de necesitatea de a-l ucide. Ei așteptau numai prilejul să-l prindă. Și Isus știa aceasta. El știa și că cel mai mic cuvânt nechibzuit al lui împotriva legii va fi acum prilej de execuție, dar, în ciuda acestui fapt, a intrat în templu și a vestit din nou că vechea cinstire a lui Dumnezeu a iudeilor prin jertfe și libații este — mincinoasă, și și-a propovăduit învățătura. Dar învățătura lui, întemeiată pe profeți, era de așa natură încât ortodocșii tot nu puteau găsi o încălcare vădită a legii, una pentru care să-l poată da morții, cu atât mai mult cu cât cea mai mare parte a poporului de rând era de partea lui Isus. Dar aici, la sărbătoare, erau păgâni și, auzind despre învățătura lui Isus, voiau să vorbească cu Isus despre învățătura lui. Ucenicii, auzind de aceasta, s-au speriat. Se temeau ca în discuția cu păgânii Isus să nu se dea de gol și să nu înrăiască poporul. La început n-au vrut să-l aducă pe Isus laolaltă cu păgânii, dar apoi s-au hotărât să-i spună că păgânii vor să vorbească cu el.
 
-Auzind aceasta, Isus s-a tulburat. El a înțeles că propovăduirea lui înaintea păgânilor va arăta vădit lepădarea lui de toată legea iudaică, va abate de la el mulțimea grosolană și le va da ortodocșilor prilejul să-l învinuiască de legături cu păgânii urâți. Isus s-a tulburat știind aceasta, dar totodată știa că chemarea lui este să le lămurească oamenilor, fiii unui singur tată, unitatea lor, fără deosebire de credințe. Știa că acest pas îi va pierde viața trupească, dar că această pieire le va da oamenilor adevărata înțelegere a vieții, și de aceea a spus: precum bobul de grâu trebuie să piară ca să nască rod, tot așa și omul trebuie să-și dea viața trupească ca să nască un rod spiritual. Cine își păzește viața trupească se lipsește de cea adevărată, iar cine nu o păzește pe cea trupească o primește pe cea adevărată. Sunt tulburat de ceea ce mă așteaptă, dar doar am trăit până acum numai ca să ajung la acest ceas, atunci cum să nu fac în acest ceas ceea ce trebuie să fac? De aceea, chiar în acest ceas, să se arate în mine voia tatălui.
+Auzind aceasta, Isus s-a tulburat. El a înțeles că propovăduirea lui înaintea păgânilor va arăta vădit lepădarea lui de toată legea iudaică, va abate de la el mulțimea grosolană și le va da ortodocșilor prilejul să-l învinuiască de legături cu păgânii odioși. Isus s-a tulburat știind aceasta, dar totodată știa că chemarea lui este să le lămurească oamenilor, fiii unui singur tată, unitatea lor, fără deosebire de credințe. Știa că acest pas îi va pierde viața trupească, dar că această pieire le va da oamenilor adevărata înțelegere a vieții, și de aceea a spus: precum bobul de grâu trebuie să piară ca să nască rod, tot așa și omul trebuie să-și dea viața trupească ca să nască un rod spiritual. Cine își păzește viața trupească se lipsește de cea adevărată, iar cine nu o păzește pe cea trupească o primește pe cea adevărată. Sunt tulburat de ceea ce mă așteaptă, dar doar am trăit până acum numai ca să ajung la acest ceas, atunci cum să nu fac în acest ceas ceea ce trebuie să fac? De aceea, chiar în acest ceas, să se arate în mine voia tatălui.
 
 Și întorcându-se către popor — către păgâni și iudei — Isus a spus pe față ceea ce îi spusese numai în taină lui Nicodim. El <!-- vol. 24, p. 908 --> a spus: viața omenească, cu credințele ei diferite și cu stăpânirile ei diferite, trebuie schimbată toată. Toate stăpânirile omenești trebuie să se nimicească. Trebuie înțeleasă numai însemnătatea omului ca fiu al tatălui vieții, și această înțelegere nimicește toate despărțirile omenești și stăpânirile și îi unește pe toți oamenii laolaltă. Iudeii au spus: tu ne distrugi toată credința. După legea noastră există Hristosul, iar tu spui că există numai fiul omului și că el trebuie înălțat. Ce înseamnă aceasta? El le-a răspuns: a-l înălța pe fiul omului înseamnă a trăi cu acea lumină a înțelegerii care este în oameni, ca, atâta timp cât este lumina, să trăiești cu această lumină. Eu nu învăț nicio credință nouă, ci numai ceea ce fiecare știe în sine. Fiecare cunoaște în sine viața. Și fiecare știe că viața i-a fost dată lui și tuturor oamenilor de tatăl vieții. Învățătura mea este numai în aceasta, să iubești viața dată de tatăl tuturor oamenilor.
 
 Mulți dintre oamenii fără ranguri l-au crezut pe Isus; iar cei însemnați și cu ranguri nu l-au crezut, pentru că nu voiau să judece sensul veșnic al cuvântării lui, ci judecau numai însemnătatea vremelnică a învățăturii lui. Vedeau că el întoarce poporul de la ei și voiau să-l ucidă, dar se temeau să-l prindă pe față și de aceea voiau să-l prindă nu în Ierusalim și ziua, ci undeva în taină. Și a venit la ei unul dintre cei doisprezece ucenici, Iuda Iscarioteanul, și ei l-au mituit ca să-i aducă pe slujitorii lor asupra lui, când Isus nu va fi în mijlocul poporului. Iuda le-a făgăduit și s-a dus iar la Isus, pândind vremea când e mai bine să-l vândă.
 
-În prima zi de sărbătoare Isus a ținut paștele cu ucenicii, și Iuda, crezând că Isus nu știe de trădarea lui, era cu ei. Dar Isus știa că Iuda l-a vândut și, când stăteau cu toții la masă, Isus a luat pâinea, a frânt-o în douăsprezece părți și a dat câte o bucată fiecărui ucenic, și lui Iuda la fel ca și celorlalți, și, fără să numească pe nimeni, a spus: luați, mâncați trupul meu. Și apoi a luat paharul cu vin, li l-a dat, ca să bea toți, și Iuda, din el, și a spus: unul dintre voi îmi va vărsa sângele. Beți sângele meu. Apoi Isus s-a ridicat și a început să le spele picioarele tuturor ucenicilor, și lui Iuda, și când a terminat, a spus: știu că unul dintre voi mă va vinde la moarte și îmi va vărsa sângele, dar eu l-am hrănit și l-am adăpat și i-am spălat picioarele. Am făcut aceasta ca să vă învăț cum trebuie să vă purtați cu cei care vă fac rău. Dacă veți face așa, veți fi fericiți. Iar ucenicii tot întrebau cine dintre ei este trădătorul. Dar Isus nu l-a numit, ca să nu-l pedepsească. Iar când s-a întunecat, Isus l-a arătat <!-- vol. 24, p. 909 --> pe Iuda și totodată i-a poruncit să plece. Iuda s-a ridicat de la masă și a fugit, și nimeni nu l-a oprit. Atunci Isus a spus: iată ce înseamnă a-l înălța pe fiul omului. A-l înălța pe fiul omului înseamnă a fi la fel de bun ca tatăl, nu numai cu cei care ne iubesc, ci cu toți, și cu cei care ne fac rău. Și de aceea nu chibzuiți asupra învățăturii mele, nu o cercetați, cum făceau ortodocșii, ci faceți ceea ce am făcut eu și ceea ce am făcut acum înaintea voastră. O singură poruncă vă dau: iubiți oamenii. Toată învățătura mea stă în a-i iubi pe oameni întotdeauna și până la capăt. După aceasta, pe Isus l-a cuprins frica, și el a mers cu ucenicii noaptea într-o grădină, ca să se ascundă. Și pe drum le-a spus: voi toți nu sunteți tari și toți sunteți fricoși: dacă vor veni să mă prindă, vă veți risipi toți. La aceasta Petru i-a spus: nu, eu nu te voi părăsi și te voi apăra, chiar până la moarte. Și toți ucenicii au spus același lucru. Și atunci Isus a spus: dacă e așa, atunci pregătiți-vă de apărare, luați merinde, pentru că va trebui să ne ascundem, și luați arme, ca să ne apărăm. Ucenicii au spus că au două cuțite. Și când Isus a auzit acest cuvânt despre cuțite, l-a cuprins mâhnirea. Și, intrând într-un loc pustiu, a început să se roage și îi îndemna și pe ucenici la aceasta; dar ucenicii nu-l înțelegeau. Isus a spus: tatăl meu, spiritule! curmă în mine lupta ispitirii. Întărește-mă în împlinirea voii tale, nu vreau voia mea, ca să-mi apăr viața trupească, ci vreau voia ta, ca să nu mă împotrivesc răului. Ucenicii tot nu-l înțelegeau. Și el le-a spus: nu vă gândiți la cele trupești, ci încercați să vă ridicați cu spiritul: puterea este în spirit, trupul este neputincios. Și a doua oară a spus: tatăl meu! dacă suferințele sunt de neocolit, să fie; dar și în suferințe doresc un singur lucru, să se săvârșească în mine nu voia mea, ci a ta. Ucenicii nu înțelegeau. Și el s-a luptat iar cu ispitirea și, în cele din urmă, biruind-o și apropiindu-se de ucenici, a spus: acum s-a hotărât, puteți fi liniștiți, nu mă voi lupta și mă voi da în mâinile oamenilor acestei lumi.
+În prima zi de sărbătoare Isus a ținut paștele cu ucenicii, și Iuda, crezând că Isus nu știe de trădarea lui, era cu ei. Dar Isus știa că Iuda l-a vândut și, când stăteau cu toții la masă, Isus a luat pâinea, a frânt-o în douăsprezece părți și a dat câte o bucată fiecărui ucenic, și lui Iuda la fel ca și celorlalți, și, fără să numească pe nimeni, a spus: luați, mâncați trupul meu. Și apoi a luat paharul cu vin, li l-a dat, ca să bea toți, și Iuda, din el, și a spus: unul dintre voi îmi va vărsa sângele. Beți sângele meu. Apoi Isus s-a ridicat și a început să le spele picioarele tuturor ucenicilor, și lui Iuda, și când a terminat, a spus: știu că unul dintre voi mă va da la moarte și îmi va vărsa sângele, dar eu l-am hrănit și l-am adăpat și i-am spălat picioarele. Am făcut aceasta ca să vă învăț cum trebuie să vă purtați cu cei care vă fac rău. Dacă veți face așa, veți fi fericiți. Iar ucenicii tot întrebau cine dintre ei este trădătorul. Dar Isus nu l-a numit, ca să nu-l pedepsească. Iar când s-a întunecat, Isus l-a arătat <!-- vol. 24, p. 909 --> pe Iuda și totodată i-a poruncit să plece. Iuda s-a ridicat de la masă și a fugit, și nimeni nu l-a oprit. Atunci Isus a spus: iată ce înseamnă a-l înălța pe fiul omului. A-l înălța pe fiul omului înseamnă a fi la fel de bun ca tatăl, nu numai cu cei care ne iubesc, ci cu toți, și cu cei care ne fac rău. Și de aceea nu chibzuiți asupra învățăturii mele, nu o cercetați, cum făceau ortodocșii, ci faceți ceea ce am făcut eu și ceea ce am făcut acum înaintea voastră. O singură poruncă vă dau: iubiți oamenii. Toată învățătura mea stă în a-i iubi pe oameni întotdeauna și până la capăt. După aceasta, pe Isus l-a cuprins frica, și el a mers cu ucenicii noaptea într-o grădină, ca să se ascundă. Și pe drum le-a spus: voi toți nu sunteți tari și toți sunteți fricoși: dacă vor veni să mă prindă, vă veți risipi toți. La aceasta Petru i-a spus: nu, eu nu te voi părăsi și te voi apăra, chiar până la moarte. Și toți ucenicii au spus același lucru. Și atunci Isus a spus: dacă e așa, atunci pregătiți-vă de apărare, luați merinde, pentru că va trebui să ne ascundem, și luați arme, ca să ne apărăm. Ucenicii au spus că au două cuțite. Și când Isus a auzit acest cuvânt despre cuțite, l-a cuprins mâhnirea. Și, intrând într-un loc pustiu, a început să se roage și îi îndemna și pe ucenici la aceasta; dar ucenicii nu-l înțelegeau. Isus a spus: tatăl meu, spiritule! curmă în mine lupta ispitirii. Întărește-mă în împlinirea voii tale, nu vreau voia mea, ca să-mi apăr viața trupească, ci vreau voia ta, ca să nu mă împotrivesc răului. Ucenicii tot nu-l înțelegeau. Și el le-a spus: nu vă gândiți la cele trupești, ci încercați să vă ridicați cu spiritul: puterea este în spirit, trupul este neputincios. Și a doua oară a spus: tatăl meu! dacă suferințele sunt de neocolit, să fie; dar și în suferințe doresc un singur lucru, să se săvârșească în mine nu voia mea, ci a ta. Ucenicii nu înțelegeau. Și el s-a luptat iar cu ispitirea și, în cele din urmă, biruind-o și apropiindu-se de ucenici, a spus: acum s-a hotărât, puteți fi liniștiți, nu mă voi lupta și mă voi da în mâinile oamenilor acestei lumi.
 
 Luc. XI, 53. După aceasta arhiereii ortodocși au început să-i sape din toate puterile lui Isus, ca să-l piardă cumva.
 
@@ -2489,7 +2489,7 @@ Ioan XI, 49. Și atunci unul dintre ei, Caiafa (el era mare preot în anul acela
 
 52. Chiar dacă poporul nu va pieri, totuși se va risipi și se va depărta de credința unică, dacă nu-l vom ucide pe Isus. Și de aceea e mai bine să-l ucidem.
 
-53. Și când Caiafa a spus aceasta, atunci toți au hotărât că n-ai la ce te mai gândi și trebuie neapărat să-l ucidă pe Isus.
+53. Și când Caiafa a spus aceasta, atunci toți au hotărât că nu mai e nimic de gândit și că Isus trebuie neapărat ucis.
 
 54. L-ar fi prins pe Isus chiar atunci și l-ar fi ucis, dar el se ascundea de ei în pustie.
 
@@ -2509,11 +2509,11 @@ Ioan XI, 8. Și i-au spus ucenicii: nu te duce la Ierusalim; arhiereii au hotăr
 
 <!-- vol. 24, p. 911 --> Ioan XII, 2. Și Isus a venit în satul Betania, lângă Ierusalim, la Marta și la Maria. Și surorile i-au făcut acolo o cină. Și când stătea la cină, Marta îi slujea.
 
-3. Iar Maria a luat un funt de mir scump, curat, mirositor, l-a turnat pe picioarele lui Isus și i le ștergea cu părul ei. Și când s-a răspândit prin toată odaia mireasma mirului,
+3. Iar Maria a luat un funt de untdelemn scump, curat, mirositor, l-a turnat pe picioarele lui Isus și i le ștergea cu părul ei. Și când s-a răspândit prin toată odaia mireasma untdelemnului,
 
 4. Iuda Iscarioteanul a spus:
 
-5. în zadar a cheltuit Maria mirul scump. Mai bine s-ar fi vândut mirul acesta cu trei sute de grivne și s-ar fi dat săracilor.
+5. în zadar a cheltuit Maria untdelemnul scump. Mai bine s-ar fi vândut untdelemnul acesta cu trei sute de grivne și s-ar fi dat săracilor.
 
 8. Iar Isus a spus: săraci veți mai avea, dar pe mine curând nu mă veți mai avea.
 
@@ -2603,7 +2603,7 @@ Mt. XXVI, 3. După ce Isus s-a ascuns, arhiereii și bătrânii s-au adunat din 
 
 20. Iată, au venit și s-au așezat la masă: Isus și cei doisprezece ucenici, și Iuda cu ei.
 
-Ioan XIII. 1. Isus știa că Iuda Iscarioteanul făgăduise deja să-l vândă la moarte, dar nu l-a dat de gol și nu s-a răzbunat pentru aceasta pe Iuda, ci, precum toată viața îi învățase pe ucenici iubirea, așa și acum numai cu iubire l-a mustrat pe Iuda.
+Ioan XIII. 1. Isus știa că Iuda Iscarioteanul făgăduise deja să-l dea la moarte, dar nu l-a dat de gol și nu s-a răzbunat pentru aceasta pe Iuda, ci, precum toată viața îi învățase pe ucenici iubirea, așa și acum numai cu iubire l-a mustrat pe Iuda.
 
 Mt. XXVI, 21; Marc. XIX, 18. Când stăteau toți doisprezece la masă, el s-a uitat la ei și a spus: între voi stă acela care m-a vândut.
 
@@ -2719,7 +2719,7 @@ Ioan XIII, 36. Și Petru i-a spus lui Isus: unde te duci? Isus a răspuns: nu ve
 
 37. Și a spus Petru: de ce crezi tu că eu acum nu sunt în stare să merg acolo unde mergi și tu? Îmi voi da viața pentru tine.
 
-38. Și a spus Isus: spui că îți vei da viața pentru mine, dar să nu te lepezi tu de mine de trei ori încă înainte de cântatul cocoșilor.
+38. Și a spus Isus: spui că îți vei da viața pentru mine, dar ca nu cumva să te lepezi tu de mine de trei ori încă înainte de cântatul cocoșilor.
 
 XIV, 1. Și Isus le-a spus ucenicilor: nu vă tulburați și nu vă temeți, ci credeți în Dumnezeul adevărat al vieții și în învățătura mea.
 
@@ -2931,7 +2931,7 @@ Când Isus și-a încheiat cuvântarea către ucenici, s-a ridicat și, în loc 
 
 Isus a fost adus la Caiafa. Caiafa a început să-l cerceteze în ce constă învățătura lui. Dar Isus, știind că Caiafa îl întreabă nu ca să afle în ce constă învățătura, ci numai ca să-l învinuiască, nu a răspuns, ci a spus: eu n-am ascuns nimic și nu ascund, dacă vrei să știi în ce constă învățătura mea, întreabă-i pe cei care au auzit-o și au înțeles-o. Pentru aceasta paznicul arhiereului l-a lovit pe Isus peste obraz, și Isus l-a întrebat de ce îl bate. Dar acela nu i-a răspuns, și arhiereul a continuat <!-- vol. 24, p. 926 --> să judece. Au adus martori, și martorii mărturiseau că Isus se lăuda că a nimicit credința iudaică. Și arhiereii îl cercetau pe Isus, dar el, văzând că nu-l întreabă ca să afle ceva, ci numai ca să dea înfățișarea unei judecăți drepte, nu răspundea nimic.
 
-Atunci arhiereul l-a întrebat: spune-mi, tu ești Hristosul, fiul lui Dumnezeu? Isus a spus: da, eu sunt omul — fiul lui Dumnezeu, și acum, chinuindu-mă, veți vedea că omul poate fi egal cu Dumnezeu. Și arhiereul s-a bucurat de aceste cuvinte și le-a spus celorlalți judecători: ajung aceste cuvinte ca să-l osândim? Și judecătorii au spus: ajung, și îl osândim la moarte. Și când au spus aceasta, tot poporul s-a năpustit asupra lui Isus și a început să-l bată, să-l scuipe în față și să-l batjocorească. El tăcea.
+Atunci arhiereul l-a întrebat: spune-mi, tu ești Hristosul, fiul lui Dumnezeu? Isus a spus: da, eu sunt om — fiul lui Dumnezeu, și acum, chinuindu-mă, veți vedea că omul poate fi egal cu Dumnezeu. Și arhiereul s-a bucurat de aceste cuvinte și le-a spus celorlalți judecători: ajung aceste cuvinte ca să-l osândim? Și judecătorii au spus: ajung, și îl osândim la moarte. Și când au spus aceasta, tot poporul s-a năpustit asupra lui Isus și a început să-l bată, să-l scuipe în față și să-l batjocorească. El tăcea.
 
 Iudeii nu aveau dreptul să-i execute pe oameni prin moarte; le trebuia îngăduință de la căpetenia romană, și de aceea, după ce l-au osândit în felul lor și și-au bătut joc de el, l-au dus la căpetenia romană Pilat, ca el să-l execute pe Isus. Pilat i-a întrebat de ce vor să-l ucidă. Ei au spus: pentru că e un om rău. Pilat spune: dacă e un om rău, judecați-l după legea voastră. Ei au spus: vrem ca tu să-l execuți, pentru că este vinovat față de cezarul roman: este un răzvrătitor, tulbură poporul, oprește să se plătească birurile cezarului și se numește împăratul iudeilor. Pilat l-a chemat la sine pe Isus și a spus: ce înseamnă aceasta, că tu ești împăratul iudeilor? Isus a spus: vrei într-adevăr să știi ce înseamnă împărăția mea? Sau vrei să mă întrebi de formă? Pilat a spus: eu nu sunt iudeu, și mi-e totuna dacă te numești sau nu împăratul iudeilor; dar te întreb ce fel de om ești și de ce spun ei că ești împărat? Isus a spus: ei spun adevărul, că mă numesc împărat. Eu sunt într-adevăr împărat, dar împărăția mea nu este pământească, ci cerească. Împărații pământești se bat și se luptă și au oști, dar vezi: pe mine m-au legat și m-au bătut, și eu nu m-am împotrivit lor. Eu sunt împărat ceresc, sunt atotputernic prin spirit.
 
@@ -2947,7 +2947,7 @@ Mt. XXVI, 46. Și după aceasta Isus a spus: acum ridicați-vă și haideți, ia
 
 <!-- vol. 24, p. 928 --> 48. Iuda le spusese: vă voi duce acolo unde este el cu ucenicii; iar ca să-l cunoașteți dintre toți, băgați de seamă: pe cine îl voi săruta întâi, acela este chiar el.
 
-49. Și îndată s-a apropiat de Isus și a spus: bună ziua, învățătorule! și l-a sărutat.
+49. Și îndată s-a apropiat de Isus și a spus: sănătate, învățătorule! și l-a sărutat.
 
 50. Și Isus i-a spus: tovarășe! de ce ești aici? Atunci straja l-a înconjurat pe Isus și a vrut să-l prindă.
 
@@ -2979,7 +2979,7 @@ Mt. XXVI, 58. Când Isus era dus acolo, unul dintre ucenicii lui Isus, Petru, me
 
 73. Puțin după aceea s-au apropiat de Petru niște oameni și spun: totuși, după toate se vede că și tu ești dintre acești răzvrătiți. După grai se poate cunoaște că ești din Galileea.
 
-74. Atunci Petru a început să se jure și să se blesteme că niciodată nu l-a cunoscut și nu l-a văzut pe Isus. Și, abia a spus aceasta, a cântat cocoșul.
+74. Atunci Petru a început să se jure și să se jure pe Dumnezeu că niciodată nu l-a cunoscut și nu l-a văzut pe Isus. Și, abia a spus aceasta, a cântat cocoșul.
 
 75. Și Petru și-a amintit cuvintele pe care i le spusese Isus atunci când Petru se jura că, dacă toți se vor lepăda, el nu se va lepăda de el: înainte de cântatul cocoșilor, în noaptea aceasta, de trei ori te vei lepăda de mine. Și a ieșit Petru din curte și a plâns amar. Plângea pentru că nu putuse să se ridice cu spiritul așa încât să nu cadă în ispită. Căzuse într-o ispită, a luptei, când începuse să-l apere pe Isus, și într-o altă ispită, a fricii de moarte, când se lepădase de Isus.
 
@@ -3001,7 +3001,7 @@ Mt. XXVI, 59. Arhiereii ortodocși încercau să-l învinuiască pe Isus și la 
 
 61. Acești pârâși au spus despre Isus: am auzit noi înșine cum spunea omul acesta: eu, zice, voi nimici acest templu al vostru făcut de mână și în trei zile voi zidi un alt templu pentru Dumnezeu — nefăcut de mână.
 
-Marc. XIV, 59. Dar și această dovadă era puțin ca să-l învinuiască.
+Marc. XIV, 59. Dar nici această dovadă nu era de ajuns ca să-l învinuiască.
 
 <!-- vol. 24, p. 930 --> Mt. XXVI, 62. Și de aceea arhiereul a început să-l provoace pe Isus și a spus: de ce nu răspunzi la mărturiile lor?
 
@@ -3069,7 +3069,7 @@ Luc. XXIII, 6. Pilat și-a amintit că Galileea este sub puterea împăratului I
 
 Mt. XXVI, 20. Și când au auzit aceasta arhiereii, au strigat toți: nu, execută-l, execută-l după obiceiul roman, întinde-l pe cruce.
 
-21. Pilat i-a ascultat și le-a spus arhiereilor: ei, bine, numai că la voi e obiceiul ca pentru sărbătoarea paștelui să fie iertat un făcător de rele. Iată, am în închisoare pe Baraba, ucigaș și răzvrătitor. Așa că pe unul din doi trebuie să-l eliberez: pe Isus sau pe Baraba? Lui Pilat i-ar fi plăcut să-l scape pe Isus, dar arhiereii au întărâtat poporul așa încât toți au strigat: pe Baraba! pe Baraba!
+21. Pilat i-a ascultat și le-a spus arhiereilor: ei, bine, numai că la voi e obiceiul ca pentru sărbătoarea paștelui să fie iertat un făcător de rele. Iată, am în închisoare pe Baraba, ucigaș și răzvrătitor. Așa că pe unul din doi trebuie să-l eliberez: pe Isus sau pe Baraba? Pilat voia să-l scape pe Isus, dar arhiereii au întărâtat poporul așa încât toți au strigat: pe Baraba! pe Baraba!
 
 22. Iar Pilat spune: și cu Isus ce să fac? Ei au strigat din nou: după obiceiul roman, pe cruce, pe cruce cu el!
 
@@ -3109,7 +3109,7 @@ Ioan XIX, 13. Atunci Pilat s-a așezat pe locul său de judecată.
 
 Mt. XXVII, 26, 27. Și a poruncit ca mai întâi Isus să fie bătut cu nuiele.
 
-28 și 29. Când l-au bătut cu nuiele, soldații, cei care îl biciuiseră, i-au pus pe cap o cunună și i-au dat în mână un băț și i-au aruncat pe spate o mantie roșie și au început să-și bată joc de el: i se închinau în batjocură până la pământ și spuneau: bucură-te, împăratul iudeilor! iar alteori îl loveau peste obraji și peste cap și îl scuipau în față.
+28 și 29. Când l-au bătut cu nuiele, soldații, cei care îl bătuseră cu nuiele, i-au pus pe cap o cunună și i-au dat în mână un băț și i-au aruncat pe spate o mantie roșie și au început să-și bată joc de el: i se închinau în batjocură până la pământ și spuneau: bucură-te, împăratul iudeilor! iar alteori îl loveau peste obraji și peste cap și îl scuipau în față.
 
 Ioan XIX, 16. Iar arhiereii strigau: răstignește-l! Împăratul nostru este cezarul. Răstignește-l. Atunci Pilat a poruncit să-l răstignească.
 
