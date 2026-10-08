@@ -169,7 +169,7 @@ Fără înțelegere nu este viață. Orice om este viu numai pentru că are în�
 
 Credințele de mai înainte se exprimau ca o lege despre ce trebuie și ce nu trebuie făcut pentru slujirea lui Dumnezeu. Iar învățătura lui Isus Hristos constă în înțelegerea vieții. Pe Dumnezeul exterior nimeni nu l-a văzut vreodată și nu-l poate cunoaște, și de aceea slujirea Dumnezeului exterior <!-- vol. 24, p. 817 --> nu poate conduce viața. Numai recunoașterea ca temelie a tuturor, — a înțelegerii din sine, provenite din principiul înțelegerii, arată calea vieții.
 
-Marcu I, 1. Vestirea despre binele lui Isus Hristos fiul lui Dumnezeu.
+Marc. I, 1. Vestirea despre binele lui Isus Hristos fiul lui Dumnezeu.
 
 Ioan I, 1. Ca temelie și principiu a toate s-a așezat înțelegerea vieții. Înțelegerea vieții s-a așezat în locul lui Dumnezeu. Înțelegerea vieții este Dumnezeu.
 
@@ -202,3 +202,151 @@ Ioan I, 1. Ca temelie și principiu a toate s-a așezat înțelegerea vieții. �
 18. Pe Dumnezeu nimeni nu l-a văzut și nu-l vede niciodată, numai fiul, acela care este în tatăl, acela a arătat calea vieții.
 
 <!-- vol. 24, p. 818 -->
+
+## Capitolul I FIUL LUI DUMNEZEU
+
+### OMUL — FIUL LUI DUMNEZEU, NEPUTINCIOS ÎN TRUP ȘI LIBER PRIN SPIRIT. (TATĂL NOSTRU.)
+
+#### CUPRINSUL CAPITOLULUI I
+
+Isus era fiul unui tată necunoscut. Necunoscându-și tatăl, el îl numea în copilăria sa pe Dumnezeu tatăl său. În vremea aceea era în Iudeea un profet, Ioan. Ioan propovăduia venirea lui Dumnezeu pe pământ. El spunea că, dacă oamenii își vor schimba viața, îi vor socoti pe toți oamenii egali între ei, nu-și vor face rău, ci se vor ajuta unii pe alții, atunci Dumnezeu va coborî pe pământ și pe pământ se va statornici împărăția lui. Auzind această propovăduire, Isus s-a retras de la oameni în pustie, ca să înțeleagă sensul vieții omului și raportul lui cu principiul nesfârșit a toate, numit Dumnezeu. Necunoscându-și tatăl trupesc, Isus îl recunoștea pe Dumnezeu drept tatăl său.
+
+După ce a petrecut în pustie câteva zile fără hrană, Isus a început să sufere de foame și s-a gândit: eu sunt fiul Dumnezeului atotputernic și de aceea trebuie să fiu atotputernic întocmai ca el; dar iată, vreau să mănânc, și pâinea nu se ivește după voia mea, prin urmare nu sunt atotputernic. La aceasta și-a spus: nu pot face pâine din pietre, dar pot să mă înfrânez de la pâine. Și de aceea, dacă nu sunt atotputernic în trup, sunt atotputernic prin spirit — pot birui trupul; și de aceea sunt fiul lui Dumnezeu nu după trup, ci după spirit.
+
+Dar dacă sunt fiul spiritului, — și-a mai spus el, — atunci pot să mă lepăd de trup și să-l nimicesc. Și la aceasta a răspuns: sunt născut prin spirit în trup. Așa a fost voia tatălui meu, și de aceea nu mă pot împotrivi voii lui.
+
+Dar dacă nu poți să-ți satisfaci dorințele trupului și nu poți să te lepezi de trup, — și-a mai spus el, — atunci trebuie să lucrezi pentru trup și să te bucuri de toate acele bucurii pe care ți le dă el. Și la aceasta a răspuns: nu pot să satisfac dorințele trupului și nu pot să mă lepăd de trup; dar viața mea este atotputernică în spiritul tatălui meu, și de aceea în trup trebuie să slujesc și să lucrez numai spiritului — tatălui.
+
+Și convingându-se că viața omului este numai în spiritul tatălui, Isus a ieșit din pustie și a început să le propovăduiască oamenilor învățătura sa. El spunea că în el este spiritul, că de acum încolo cerul este deschis, <!-- vol. 24, p. 819 --> și puterile cerești s-au unit cu omul, a venit pentru oameni viața nesfârșită și liberă, că oamenii toți, oricât de nefericiți ar fi după trup, pot fi fericiți.
+
+Mat. I, 18. Nașterea lui Isus Hristos a fost așa: mama lui, Maria, era logodită cu Iosif. Dar înainte ca ei să înceapă să trăiască precum bărbatul cu femeia, Maria s-a aflat grea.
+
+19, 24, 25. Iar Iosif era om bun și nu voia s-o facă de rușine; a luat-o de soție și nu a avut de-a face cu ea până ce n-a născut ea pe fiul său întâi, și i-a pus numele Isus.
+
+Luc. II, 40. Și băiatul creștea și se întărea; și era cu minte peste vârsta lui.
+
+41, 42, 43, 44, 45. Isus avea deja 12 ani, și s-au dus odată Maria și Iosif la sărbătoare la Ierusalim și l-au luat cu ei pe băiat. A trecut sărbătoarea, și au plecat acasă și au uitat de băiat.
+
+Apoi și-au amintit și s-au gândit că a plecat cu copiii, și au întrebat de el pe drum. Băiatul nu era nicăieri, și s-au întors după el la Ierusalim.
+
+46. Și abia a treia zi l-au găsit pe băiat în biserică — stă cu învățătorii, îi întreabă și ascultă.
+
+47. Și toți se miră de mintea lui.
+
+48. Mama l-a văzut și spune: ce ne-ai făcut? Iată, eu și tatăl tău ne mâhnim, te căutăm.
+
+49. Iar el le-a spus: unde m-ați căutat? Oare nu știți că pe fiu trebuie să-l cauți în casa tatălui?
+
+50. Și ei n-au înțeles cuvintele lui, n-au înțeles pe cine numește el tatăl său.
+
+51. Și după aceasta Isus a trăit la mama sa și a ascultat-o în toate.
+
+52. Și sporea și în vârstă, și în minte.
+
+Lc. III, 23. Și toți credeau că Isus este fiul lui Iosif. Și așa a trăit el până la 30 de ani.
+
+Mat. III, 1. În vremea aceea s-a arătat în Iudeea profetul Ioan.
+
+Marc. I, 4. Ioan trăia în stepa Iudeii, la Iordan.
+
+Mat. III, 4. Haina lui Ioan era din păr de cămilă, încinsă cu o curea, iar el se hrănea cu coajă de copac și cu ierburi.
+
+Mc. I, 4. El chema poporul la schimbarea vieții, ca să scape de rătăcire, și în semn de schimbare a vieții scălda poporul în Iordan.
+
+<!-- vol. 24, p. 820 --> Lc. III, 4. El spunea: un glas vă strigă; croiți-i în sălbăticie drum lui Dumnezeu, netezați-i drumul.
+
+5. Faceți așa încât totul să fie neted, să nu fie nici gropi, nici ridicături, nici înalt, nici jos.
+
+6. Atunci Dumnezeu va fi în voi, și toți își vor găsi mântuirea.
+
+10. Și poporul îl întreba: ce să facem?
+
+11. El răspundea: cine are două haine, să-i dea celui ce n-are. Și cine are hrană, să-i dea celui ce n-are.
+
+12. Veneau la el strângători de dări și întrebau: noi ce să facem?
+
+13. El le-a spus: nu storceți nimic peste ce este rânduit.
+
+14. Și întrebau ostașii: noi cum să facem? El a spus: nu nedreptățiți pe nimeni, nu trișați. Fiți mulțumiți cu ceea ce vi se dă.
+
+Mat. III, 5. Și veneau la el ierusalimitenii și toți iudeii din apropierea Iordanului.
+
+6. Și se pocăiau înaintea lui de nedreptatea lor, și în semn de schimbare a vieții îi scălda în Iordan.
+
+7. Și ortodocșii și staroverii au venit și ei la Ioan, dar în taină. El i-a recunoscut și a spus: voi, soi de șerpi, ori ați simțit și voi că nu scăpați de voia lui Dumnezeu, atunci veniți-vă în fire și schimbați-vă credința.
+
+8. Și dacă vreți să vă schimbați credința, atunci să se vadă după roadele voastre că v-ați venit în fire.
+
+10. Iată, și securea e pusă lângă copac. Dacă un copac aduce rod rău, îl taie și îl aruncă în foc.
+
+11. Eu, în semn de schimbare a credinței voastre, vă curăț în apă, dar după această scăldare trebuie să vă curățați încă prin spirit.
+
+12. Spiritul vă va curăța, cum curăță gospodarul aria sa: grâul îl va strânge, iar pleava o va arde.
+
+13. Isus a venit din Galileea la Iordan, ca să se scalde la Ioan, și s-a scăldat și a ascultat propovăduirea lui Ioan.
+
+Mat. IV, 1. Și de la Iordan s-a dus în pustie și acolo a cunoscut puterea spiritului.
+
+2. Isus a stat în pustie 40 de zile și 40 de nopți fără băutură și mâncare.
+
+3. Și glasul trupului său i-a spus:
+
+Luc. IV, 3. Dacă ai fi fiul Dumnezeului atotputernic, atunci după voia ta ai putea face pâini din pietre, dar tu nu poți face aceasta, prin urmare nu ești fiul lui Dumnezeu.
+
+<!-- vol. 24, p. 821 --> 4. Dar Isus și-a spus: dacă nu pot face pâine din pietre, aceasta înseamnă că nu sunt fiul Dumnezeului trupului, ci fiul Dumnezeului spiritului. Eu sunt viu nu prin pâine, ci prin spirit. Și spiritul meu poate să nesocotească trupul. Dar foamea tot îl chinuia, și glasul trupului i-a mai spus: dacă ești viu numai prin spirit și poți să nesocotești trupul, atunci poți să te lepezi de trup, și spiritul tău va rămâne viu.
+
+9. Și i s-a părut că stă pe acoperișul templului și glasul trupului îi spune: dacă ești fiul Dumnezeului spiritului, atunci aruncă-te de pe templu, nu te vei ucide.
+
+10. Iar o putere nevăzută te va păzi, te va sprijini și te va izbăvi de orice rău.
+
+11. Dar Isus și-a spus: pot să nesocotesc trupul, dar nu pot să mă lepăd de el, pentru că sunt născut prin spirit în trup. Așa a fost voia tatălui spiritului meu, și nu mă pot împotrivi lui. Atunci glasul trupului i-a spus: dacă nu te poți împotrivi tatălui tău ca să nu te arunci de pe templu și să te lepezi de trup, atunci nu poți nici să te împotrivești tatălui ca să flămânzești când îți e foame. Nu trebuie să nesocotești poftele trupului. Ele sunt puse în tine, și trebuie să le slujești.
+
+5. Și lui Isus i s-au înfățișat toate împărățiile pământești și toți oamenii, cum trăiesc ei și trudesc pentru trup, așteptând de la el răsplată.
+
+6. Și glasul trupului i-a spus: iată, vezi, ei lucrează pentru mine, și eu le dau tot ce vor.
+
+7. Dacă vei lucra pentru mine, și ție îți va fi la fel.
+
+8. Dar Isus și-a spus: tatăl meu nu este trupul, ci spiritul. Prin el trăiesc, pe el îl cunosc în mine întotdeauna, numai pe el îl cinstesc și numai lui îi lucrez, numai de la el așteptând răsplată.
+
+13. Atunci ispitirea a încetat, și Isus a cunoscut puterea spiritului.
+
+Luc, IV, 14; Ioan I, 36. Și cunoscând puterea spiritului, Isus a ieșit din pustie și a venit din nou la Ioan și a fost cu el. Și când Isus pleca de la Ioan, Ioan a spus despre el: acesta este mântuitorul oamenilor.
+
+Ioan I, 37. După aceste cuvinte ale lui Ioan, doi ucenici ai lui Ioan și-au părăsit învățătorul de mai înainte și au mers după Isus.
+
+38. Isus a văzut că ei merg după el, s-a oprit și spune: ce vă trebuie? Ei i-au spus: învățătorule! vrem să fim cu tine și să cunoaștem învățătura ta.
+
+<!-- vol. 24, p. 822 --> 39. El a spus: haideți cu mine, și vă voi spune totul. Ei au mers cu el și au rămas cu el, ascultându-l până la ceasul al zecelea.
+
+40. Pe unul dintre acești ucenici îl chema Andrei. Andrei avea un frate, Simon.
+
+41. După ce l-a ascultat pe Isus, Andrei s-a dus la fratele său Simon și îi spune: l-am găsit pe acela despre care au scris profeții și Moise, pe acela care ne va vesti mântuirea noastră.
+
+42. Andrei l-a luat cu sine pe Simon și l-a adus și pe el la Isus. Pe acest frate al lui Andrei Isus l-a poreclit Petru — adică piatră. Și amândoi acești frați s-au făcut ucenici ai lui Isus.
+
+43. Apoi, chiar înainte de intrarea în Galileea, Isus l-a mai întâlnit pe Filip și l-a chemat cu sine.
+
+44. Filip era din Betsaida, consătean cu Petru și cu Andrei.
+
+45. Când Filip l-a cunoscut pe Isus, s-a dus și l-a căutat pe fratele său Natanael și îi spune: l-am găsit pe alesul lui Dumnezeu, despre care au scris profeții și Moise. Acesta este Isus, fiul lui Iosif din Nazaret.
+
+46. Natanael s-a mirat că acela despre care scriseseră profeții era din satul vecin și spune: e greu de crezut ca trimisul lui Dumnezeu să fie din Nazaret. Filip spune: haide cu mine, vei vedea și vei auzi singur.
+
+47—49. Natanael s-a învoit și a mers cu fratele său și s-a văzut cu Isus; și când l-a auzit, i-a spus lui Isus: da, acum văd că este adevărat că tu ești fiul lui Dumnezeu și împăratul lui Israel.
+
+51. Isus i-a spus: află ceea ce este mai important decât aceasta. De acum încolo veți afla că cerul este deschis și că oamenii pot fi în legătură cu puterile cerești. De acum încolo Dumnezeu nu va mai fi deosebit de oameni.
+
+Luc. IV, 16. Și a venit Isus în locul lui de baștină, în Nazaret. Și în ziua de sărbătoare a intrat, ca întotdeauna, în adunare și a început să citească.
+
+17. I-au dat cartea profetului Isaia. El a deschis-o și a început să citească. În carte era scris:
+
+18. Spiritul stăpânitorului este în mine. El m-a ales ca să vestesc binele celor nefericiți și cu inima zdrobită, ca să vestesc celor legați libertatea, orbilor — lumina, și celor chinuiți — mântuirea și odihna.
+
+19. Ca să vestesc tuturor vremea milostivirii lui Dumnezeu.
+
+20. El a închis cartea, a dat-o slujitorului și s-a așezat; și toți așteptau ce va spune.
+
+21. Și el a spus: acum această scriptură s-a împlinit sub ochii voștri.
+
+<!-- vol. 24, p. 823 -->
