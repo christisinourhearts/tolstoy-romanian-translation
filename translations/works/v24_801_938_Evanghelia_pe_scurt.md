@@ -3144,3 +3144,131 @@ Mt. XXVII, 46. Iar în ceasul al nouălea, Isus, chinuit, a rostit cu glas tare:
 47. Și când au auzit aceasta în popor, au început să vorbească și să râdă. Îl cheamă pe profetul Ilie: să vedem cum va veni Ilie.
 
 48. Apoi Isus a rostit: să beau. Și un om a luat un burete, l-a muiat în oțet (era acolo o putină) și l-a dat lui Isus într-o trestie. Isus a supt din burete și a spus cu glas tare: s-a sfârșit! tată, în mâinile tale îmi dau spiritul. Și, plecându-și capul, și-a dat duhul.
+
+## ÎNCHEIERE ÎNTÂIA EPISTOLĂ A LUI IOAN TEOLOGUL
+
+Cap. I, 1, 2, 3. Vestirea despre binele lui Isus Hristos este vestirea despre înțelegerea vieții, prin care oamenii au legătură cu tatăl vieții și de aceea viață veșnică.
+
+4. Aceasta este vestirea despre binele adevărat.
+
+5. Înțelegerea vieții constă în aceea că Dumnezeu este viața și binele și că în viață și în bine nu există moarte și rău.
+
+6. Dacă am spune că ne-am unit cu Dumnezeu, dar trăim în rău și în moarte, atunci ori ne amăgim, ori mințim cu neobrăzare.
+
+7. Numai dacă trăim aceeași viață pe care a trăit-o Isus, numai atunci suntem uniți cu el.
+
+<!-- vol. 24, p. 935 --> Cap. II, 1. Drept pildă a vieții adevărate trebuie s-o socotim viața lui Isus Hristos.
+
+2. El ne-a izbăvit pe noi și toată lumea de nedreptate. Numai acela este creștin care recunoaște învățătura lui Hristos și îi împlinește poruncile.
+
+4. Acela care spune că recunoaște învățătura lui Isus Hristos, dar nu-i împlinește poruncile, acela este un înșelător neobrăzat, și în el nu este adevăr.
+
+5. Iar acela care îi împlinește poruncile, acela are iubire față de aproapele. Numai prin această iubire ne unim cu Dumnezeu.
+
+6. Acela care spune că s-a unit cu Isus Hristos, acela trebuie să și trăiască la fel cum a trăit Isus.
+
+9. Acela care spune despre sine că este în viață și în bine, dar îl urăște pe fratele său viu, acela nu este în viață și în bine, ci în moarte și în rău, și nici nu știe ce face. Și orb este acela care urăște viața care este în el.
+
+15. Ca să nu fii orb, trebuie să-ți amintești că tot ce este lumesc, al traiului de zi cu zi, este pofta trupului sau a deșertăciunii, și toate acestea nu sunt de la Dumnezeu.
+
+16. Că tot ce este lumesc este trecător și moare.
+
+17. Și numai iubirea și faptele bune făcute din iubire sunt veșnice.
+
+23. Numai acela care își recunoaște spiritul drept fiu al tatălui, numai acela se unește cu tatăl.
+
+24. Și de aceea țineți-vă cu tărie de acea înțelegere, că sunteți, după spirit, fiii tatălui Dumnezeu. Având această încredințare, veți primi viața veșnică.
+
+Cap. III, 1. Dumnezeu ne-a dat putința să fim fiii lui și la fel ca el însuși.
+
+2. Așa încât în această viață devenim fiii lui. Deși nu știm ce va fi cu noi după aceea, știm însă că suntem la fel ca el și ne putem uni cu el.
+
+3. Nădejdea în această viață veșnică îl izbăvește pe om de greșeli și îl face curat, la fel ca și tatăl.
+
+4. Oricine face o faptă rea lucrează împotriva voii tatălui.
+
+5. Isus Hristos s-a arătat la noi ca să ne învețe izbăvirea de păcate și unirea cu Dumnezeu.
+
+6. Și de aceea acela care s-a unit cu el nu mai poate păcătui. Păcătuiește numai acela care nu-l cunoaște.
+
+7. Și cine trăiește în Dumnezeu, acela face dreptatea.
+
+8. Nu face dreptatea acela care nu este unit cu Dumnezeu.
+
+<!-- vol. 24, p. 936 --> 9. Cine și-a recunoscut nașterea din Dumnezeu, acela nu poate face minciuna.
+
+10. Și de aceea oamenii se împart în dumnezeiești și nedumnezeiești, în cei care cunosc dreptatea și își iubesc frații și în cei care nu cunosc dreptatea și nu-și iubesc frații.
+
+11. Pentru că, după vestirea lui Isus Hristos, noi nu putem să nu ne iubim frații.
+
+14. După vestirea lui Isus Hristos știm că vom trece din moarte în viață, dacă vom începe să iubim, și că cine nu-și iubește fratele, acela se află în moarte.
+
+15. Știm că acela care nu-și iubește fratele viu, acela nu iubește viața. Iar acela care nu iubește viața nu poate avea viață.
+
+16. După vestirea lui Isus Hristos știm că viața ne-a fost dată din iubire pentru noi, și de aceea trebuie să ne dăm și noi viața din iubire pentru aproapele, adică să ne jertfim viața pentru binele aproapelui.
+
+17. Așa încât acela care are viață și vede că fratele său este în nevoie și nu-și dă viața fratelui, în acela nu este iubire dumnezeiască.
+
+18. Trebuie să iubești nu prin cuvinte, ci prin fapte și prin adevăr.
+
+19. Și cine iubește așa, aceluia îi este inima liniștită, pentru că este unit cu tatăl.
+
+20. Dacă inima lui se luptă, atunci el își supune inima lui dumnezeu.
+
+21. Pentru că Dumnezeu este mai important decât dorințele inimii. Iar dacă inima nu se luptă, atunci el este fericit.
+
+22. Pentru că face tot ce poate, lucrul cel mai bun, și împlinește tot ce i s-a poruncit.
+
+23. Iar i s-a poruncit să creadă că este fiul lui Dumnezeu și să-și iubească fratele.
+
+Cap. IV, 4. Cei care se poartă așa, aceia se unesc cu Dumnezeu și ajung mai presus de lume, pentru că ceea ce este în ei este mai mare și mai important decât toată lumea.
+
+7. Și de aceea să ne iubim unii pe alții. Iubirea este de la Dumnezeu, și oricine iubește, acela este fiul lui Dumnezeu și îl cunoaște pe Dumnezeu.
+
+8. Iar cine nu iubește, acela nu-l cunoaște pe Dumnezeu, pentru că Dumnezeu este iubire.
+
+9. Că Dumnezeu este iubire, cunoaștem din aceea că el și-a trimis în lume spiritul său, la fel ca el însuși, și ne-a dat prin el viață.
+
+<!-- vol. 24, p. 937 --> 10. Noi nu eram, și nu-i eram necesari lui Dumnezeu, dar el ne-a dat viață și bine, prin urmare ne iubește.
+
+12. Pe Dumnezeu nimeni nu-l poate cunoaște. Tot ce putem ști despre el este că el ne-a iubit și prin această iubire ne-a dat viață.
+
+11. Și de aceea, ca să fim în legătură cu Dumnezeu, trebuie să fim ceea ce este el și să facem ceea ce face el, adică să-i iubim pe oameni.
+
+12. Dacă ne iubim unii pe alții, atunci Dumnezeu este în noi, și noi rămânem în el.
+
+16. Înțelegând iubirea lui Dumnezeu pentru noi, credem că Dumnezeu este iubire și că acela care iubește, acela este unit cu Dumnezeu.
+
+17. Iar înțelegând aceasta, nu ne temem de moarte, pentru că am devenit în această lume la fel ca Dumnezeu.
+
+18. Viața noastră a devenit iubire, și ne-am eliberat de frică și de toate suferințele.
+
+19. Iubim pentru că Dumnezeu ne iubește.
+
+20. Și iubim nu pe Dumnezeu, pe care nu-l poți iubi, pentru că nimeni nu-l vede, ci îl iubim pe fratele, pe care îl poți iubi. Acela care spune că îl iubește pe Dumnezeu, dar pe fratele său îl urăște, acela se înșală, pentru că, dacă nu-și iubește fratele, pe acela pe care îl vede, cum poate să-l iubească pe Dumnezeu, pe care nu-l vede?
+
+21. Așadar, ne este dată porunca să-l iubim pe Dumnezeu în fratele nostru.
+
+Cap. V, 3. Iubirea lui Dumnezeu constă în a-i împlini poruncile.
+
+4. Iar poruncile lui nu sunt grele pentru acela care, recunoscându-și nașterea din Dumnezeu, ajunge mai presus de lume.
+
+Credința noastră ne ridică mai presus de lume. Iar adevărata noastră credință constă în învățătura lui Isus, fiul lui Dumnezeu. El ne-a învățat că trebuie să fim în lume nu numai cu trupul, ci și cu spiritul.
+
+8. Și spiritul este în noi și ne întărește în adevărul învățăturii lui.
+
+9. Dacă credem în ceea ce afirmă oamenii, atunci cum să nu credem în acel spirit care este în noi.
+
+10. Acela care crede că în el este spiritul vieții, spiritul coborât de sus, acela are mulțumirea în sine însuși. Iar acela care nu crede că viața lui este — spirit coborât de sus de la tatăl, acela îl face pe Dumnezeu înșelător.
+
+11. Spiritul afirmă că viața din noi este viață veșnică.
+
+12. Cine crede că acest spirit este fiul spiritului veșnic și la fel ca el, acela are viață veșnică.
+
+<!-- vol. 24, p. 938 --> 14. Și cine crede în aceasta, pentru acela nu există piedici în viață, ci tot ce dorește după voia tatălui, toate acestea se vor împlini pentru el.
+
+18. Și de aceea acela care crede că este fiul lui Dumnezeu nu trăiește în minciună și este curat de rău.
+
+19, 20. Pentru că știe că lumea traiului de zi cu zi este o amăgire și că în el însuși, în om, este rațiunea, ca să cunoască ceea ce există cu adevărat.
+
+*Iar cu adevărat există numai spiritul* — *fiul tatălui.*
