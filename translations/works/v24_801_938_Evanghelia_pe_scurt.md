@@ -1257,7 +1257,7 @@ Ioan VI, 10. Și a spus Isus: spuneți-le tuturor să se culce pe iarbă.
 
 61. Și Isus le-a spus: sunteți atât de încurcați, încât vi se pare greu ceea ce spun despre ce a fost, și este, și va fi întotdeauna omul.
 
-63. Omul este spirit în trup, și numai spiritul dă viață, iar trupul nu dă viață. În cuvintele care vi se par atât de încâlcite eu n-am spus doar nimic altceva decât că spiritul este viața.
+63. Omul este spirit în trup, și numai spiritul dă viață, iar trupul nu dă viață. În cuvintele care vi se par atât de încâlcite eu doar n-am spus nimic altceva decât că spiritul este viața.
 
 Luc. X, 1. Apoi Isus a ales dintre cei apropiați ai săi șaptezeci de oameni și i-a trimis în acele locuri unde voia să ajungă el însuși.
 
@@ -1289,7 +1289,7 @@ Vă vor goni cum gonesc lupii oile, dar voi să nu vă pierdeți cumpătul, răb
 
 27. Ceea ce le veți spune la doi sau la trei se va răspândi printre mii.
 
-28. Și mai ales, nu vă temeți de cei care vă pot ucide trupul: sufletelor voastre ele nu le pot face nimic. Așa că nu vă temeți de ei. Ci temeți-vă să nu se nimicească trupurile și sufletele, dacă vă veți abate de la împlinirea voii tatălui, de aceasta să vă temeți.
+28. Și mai ales, nu vă temeți de cei care vă pot ucide trupul: sufletelor voastre ei nu le pot face nimic. Așa că nu vă temeți de ei. Ci temeți-vă să nu se nimicească trupurile și sufletele, dacă vă veți abate de la împlinirea voii tatălui, de aceasta să vă temeți.
 
 29. Pe o copeică se dau cinci vrăbii, și nici ele nu mor fără voia tatălui.
 
