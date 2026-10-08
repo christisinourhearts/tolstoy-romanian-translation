@@ -742,3 +742,235 @@ Secerișul — este sfârșitul vieții omenești, iar secerătorii — sunt put
 Luc. VIII, 18. Și de aceea băgați de seamă cum înțelegeți pildele. Înțelegeți așa încât să nu vă lăsați în voia amăgirilor, a jignirilor și a grijilor, ci să aduceți rod de treizeci de ori, de șaizeci de ori și însutit.
 
 Mat. XIII, 31. Împărăția cerului crește în suflet din nimic, dar dă totul. Ea este ca o sămânță de mesteacăn, cea mai mică dintre boabe, care, când crește, este mai mare decât toți copacii, și păsările cerului își fac cuiburi în ei.
+
+## Capitolul IV ÎMPĂRĂȚIA LUI DUMNEZEU
+
+### ȘI DE ACEEA VOIA TATĂLUI ESTE VIAȚA ȘI BINELE TUTUROR OAMENILOR. (VIE ÎMPĂRĂȚIA TA.)
+
+#### CUPRINSUL CAPITOLULUI IV
+
+Lui Isus îi era milă de oameni pentru că nu cunosc binele adevărat, și îi învăța. El spunea: fericiți sunt cei care nu au avere, nu au slavă și nu au grijă de acestea; iar nefericiți sunt cei care caută bogăția și slava, pentru că săracii și asupriții sunt în voia tatălui, iar bogații și slăviții caută numai răsplată de la oameni în această viață vremelnică. Ca să împlinești voia tatălui, trebuie să nu te temi să fii sărac și disprețuit, trebuie să te bucuri de aceasta, ca să le arăți oamenilor în ce stă binele adevărat.
+
+Ca să împlinești voia tatălui, care dă viață și bine tuturor oamenilor, trebuie să împlinești cinci porunci.
+
+<!-- vol. 24, p. 839 --> *Prima* *poruncă*. Să nu nedreptățești pe nimeni și să faci așa încât să nu stârnești în nimeni răul, pentru că din rău se naște răul.
+
+*A doua poruncă*. Să nu faci curte femeilor, să nu o părăsești pe femeia cu care te-ai împreunat, pentru că părăsirea femeilor și schimbarea lor produce tot desfrâul din lume.
+
+*A treia poruncă*. Să nu juri în nimic, pentru că nu poți făgădui nimic, întrucât omul este cu totul în puterea tatălui, iar jurămintele se iau pentru fapte rele.
+
+*A patra poruncă.* Să nu te împotrivești răului, să înduri jignirea și să faci și mai mult decât ceea ce cer oamenii: să nu judeci și să nu te judeci, pentru că omul însuși este plin de greșeli și nu-i poate învăța pe alții. Prin răzbunare omul numai îi învață pe alții același lucru.
+
+*A cincea poruncă*. Să nu faci deosebire între patria ta și una străină, pentru că toți oamenii sunt copiii unui singur tată.
+
+Aceste cinci porunci trebuie ținute nu ca să câștigi lauda oamenilor, ci pentru tine, pentru fericirea ta. Nici să te rogi, nici să postești nu este necesar. Să te rogi nu e necesar pentru că tatăl știe tot ce le trebuie oamenilor. Și nu ai ce să-i ceri; trebuie numai să te străduiești să fii în voia tatălui. Iar voia tatălui este să nu ai ură pe nimeni. Să postești nu e necesar: oamenii postesc numai pentru lauda oamenilor; iar lauda oamenilor nu poate da fericirea. Trebuie să te îngrijești numai să fii în voia tatălui, iar restul va veni de la sine. Dacă te îngrijești de cele trupești, atunci nu te mai poți îngriji de împărăția cerului. Și fără grija de mâncare și de îmbrăcăminte omul va fi viu. Tatăl dă viața. Trebuie să te îngrijești numai ca în ceasul de acum să fii în voia tatălui. Tatăl le dă copiilor ceea ce le trebuie. Se poate dori numai puterea spiritului, pe care o dă tatăl. Cele cinci porunci hotărăsc calea spre împărăția cerului. Numai această cale îngustă duce la viața veșnică. Învățătorii mincinoși, lupi în piei de oaie, încearcă întotdeauna să-i abată pe oameni de pe această cale. Trebuie să te ferești de ei. Pe învățătorii mincinoși îi poți recunoaște întotdeauna, pentru că ei învață răul în numele binelui. Dacă învață silnicia, execuțiile — sunt învățători mincinoși. După faptele pe care le învață îi poți recunoaște.
+
+Împlinește voia tatălui nu acela care cheamă numele lui Dumnezeu, ci acela care face faptele binelui. Așa încât cine împlinește aceste cinci porunci, acela va avea o viață neîndoielnică, pe care nimeni nu i-o <!-- vol. 24, p. 840 --> va lua, iar cine nu le va împlini, acela va avea o viață care curând i se va lua, așa încât nu va rămâne nimic. Învățătura lui Isus uimește și atrage tot poporul prin aceea că îi recunoaște pe toți liberi. Învățătura lui Isus a fost împlinirea proorociei lui Isaia, că alesul lui Dumnezeu a adus lumina oamenilor și a biruit răul, și a restabilit dreptatea prin blândețe, smerenie și bine, și nu prin silnicie.
+
+Mat. IX, 35. Și Isus umbla prin orașe și prin sate și îi învăța pe toți fericirea împlinirii voii tatălui.
+
+36. Lui Isus îi era milă de oameni pentru că pier, necunoscând în ce stă viața adevărată, și se zbat și se chinuie fără să știe nici ei de ce, ca niște oi părăsite, fără păstor.
+
+Mt. V, 1. Odată s-a adunat la Isus o mulțime de popor ca să-i asculte învățătura, și el a urcat pe munte și s-a așezat. Ucenicii l-au înconjurat.
+
+2. Și Isus a început să învețe poporul în ce constă voia tatălui.
+
+Luc. VI, 21. El a spus: fericiți sunt săracii, cei fără casă, pentru că ei sunt în voia tatălui. Chiar dacă vor flămânzi o vreme, se vor sătura; chiar dacă se vor mâhni și vor plânge o vreme, se vor mângâia.
+
+22. Dacă oamenii îi disprețuiesc și îi îndepărtează și îi alungă de pretutindeni.
+
+23. Să se bucure de aceasta, pentru că așa i-au alungat întotdeauna pe oamenii lui Dumnezeu. Și vor primi răsplată cerească.
+
+24. Dar vai bogaților, pentru că au primit deja tot ce doreau și nu vor mai primi nimic.
+
+25. Acum sunt mulțumiți, dar vor fi și flămânzi. Acum sunt veseli, dar vor fi și triști.
+
+26. Dacă toți îi preamăresc, vai lor, pentru că toți îi preamăresc numai pe înșelători. Fericiți sunt săracii, cei fără casă, dar fericiți numai atunci când sunt săraci nu numai la înfățișare, ci și cu sufletul, cum sarea e bună numai atunci când nu doar la înfățișare seamănă cu sarea, ci când este sărată de la sine.
+
+Mat. V, 13. Așa și voi, săraci, fără casă, învățători ai lumii, sunteți fericiți dacă știți că fericirea adevărată stă în a fi fără casă și sărac. Iar dacă sunteți săraci numai la înfățișare, atunci sunteți ca sarea nesărată, nu mai sunteți buni de nimic.
+
+14. Voi sunteți lumina lumii, și de aceea nu vă ascundeți lumina și arătați-o oamenilor.
+
+<!-- vol. 24, p. 841 --> 15. Doar, aprinzând lumina, nu o pun sub laviță, ci o pun pe masă, ca să lumineze tuturor din odaie.
+
+16. Așa și voi, nu vă ascundeți lumina, ci arătați-o prin fapte, așa încât oamenii să vadă că voi cunoașteți adevărul și, privind la faptele voastre bune, să-l înțeleagă pe tatăl vostru ceresc.
+
+17. Și să nu credeți că eu vă slobozesc de lege. Eu nu învăț slobozirea de lege, ci învăț împlinirea legii veșnice.
+
+18. Cât timp sunt oameni sub cer, este și legea veșnică. Lege nu va mai fi numai atunci când oamenii vor împlini de la sine totul după legea veșnică. Și iată, eu vă dau poruncile legii veșnice.
+
+19. Și dacă cineva se va slobozi măcar de una din aceste porunci scurte și îi va învăța pe alții că se pot slobozi de ele, acela va fi ultimul în împărăția cerului; iar cine le va împlini și prin aceasta îi va învăța pe alții, acela va fi mare în împărăția cerului.
+
+20. Pentru că, dacă virtutea voastră nu va fi mai mare decât virtutea cărturarilor ortodocși, nicidecum nu veți fi în împărăția cerului.
+
+Iată aceste porunci:
+
+21. *Prima poruncă*. Mat. V, 21. În legea de mai înainte este spus: să nu ucizi. Iar dacă cineva îl ucide pe altul, acela trebuie judecat.
+
+22. Iar eu vă spun că merită judecată oricine se mânie pe fratele său. Și și mai vinovat este acela care îi va spune fratelui său un cuvânt de ocară.
+
+Așa încât, dacă vrei să te rogi lui Dumnezeu, amintește-ți mai întâi dacă nu este vreun om care să aibă ceva împotriva ta, și dacă îți amintești că măcar un om socoate că l-ai nedreptățit, lasă-ți rugăciunea și du-te mai întâi și împacă-te cu fratele tău, abia atunci roagă-te. Să știți că lui Dumnezeu nu-i trebuie nici jertfă, nici rugăciune, ci îi trebuie pace, înțelegere și iubire între voi. Și că nu puteți nici să vă rugați, nici să vă gândiți la Dumnezeu, dacă aveți măcar un om cu care nu sunteți în iubire.
+
+Așa că iată *prima poruncă:* nu vă mâniați, nu vă certați, iar dacă v-ați certat — împăcați-vă și faceți așa încât niciun om să nu aibă vreo supărare pe voi.
+
+<!-- vol. 24, p. 842 --> Mat. XIX, 7. *A doua poruncă*. În legea de mai înainte este spus: să nu preacurvești. Și dacă vrei să-ți lași femeia, dă-i carte de despărțire; iar eu vă spun că, dacă te desfeți privind frumusețea unei femei, atunci deja preacurvești. Orice desfrâu pierde sufletul, și de aceea e mai bine pentru tine să renunți la desfătarea trupească decât să-ți pierzi viața.
+
+9. Și dacă îți vei lăsa femeia, atunci, pe lângă faptul că ești desfrânat, o mâni și pe ea în desfrâu, și pe acela care se va lega de ea. Și de aceea, iată *a doua poruncă:* Să nu crezi că iubirea pentru femeie ar fi un lucru bun. Nu te desfăta privind femeile, ci trăiește cu aceea cu care te-ai împreunat și nu o părăsi.
+
+*A treia poruncă*. În legea de mai înainte este spus: să nu rostești numele Domnului Dumnezeului tău în deșert, să nu chemi pe Dumnezeul tău în minciună (Lev. XIX, 12). Să nu necinstești numele Dumnezeului tău. Să nu jurați pe mine în nedreptate, așa încât să-l pângăriți pe Dumnezeul vostru. Iar eu vă spun.
+
+Mat. V, 34. Că orice jurământ este o pângărire a lui Dumnezeu, și de aceea să nu jurați deloc.
+
+36. Omul nu poate făgădui nimic, pentru că este cu totul în puterea tatălui. El nu poate face un singur fir de păr din cărunt negru; cum să jure atunci dinainte că va face cutare și cutare lucru, și să jure pe Dumnezeu. Orice jurământ este o pângărire a lui Dumnezeu, pentru că, dacă omul va trebui să împlinească un jurământ potrivnic voii lui Dumnezeu, va ieși că a făgăduit să lucreze împotriva voii lui, și de aceea orice jurământ este un rău.
+
+37. Iar când te întreabă cineva ceva, spune da, dacă e da; nu, dacă e nu; iar tot ce vei mai adăuga va fi rău. Și de aceea *a treia poruncă:* Niciodată să nu juri nimănui în nimic. Spune: da, când e da; nu, când e nu; și să știi că orice jurământ este un rău.
+
+38. *A patra poruncă.* În legea de mai înainte este spus: (Ieș. XXI, 21 și 22): că acela care va pierde un suflet trebuie să dea suflet pentru suflet, ochi pentru ochi, dinte pentru dinte, mână pentru mână, bou pentru bou, rob pentru rob și încă multe altele.
+
+39. Iar eu vă spun: nu lupta cu răul prin rău și nu numai că să nu iei prin judecată bou pentru bou, rob pentru rob, suflet pentru suflet, ci să nu te împotrivești deloc răului.
+
+40. Dacă cineva vrea să-ți ia prin judecată un bou, dă-i altul; cine vrea să câștige de la tine prin judecată caftanul, dă-i și cămașa, cine îți scoate un dinte dintr-o falcă, întoarce-i și cealaltă falcă.
+
+<!-- vol. 24, p. 843 --> 41. Dacă te silesc să le faci o muncă, fă două.
+
+Luca VI, 30. Îți iau averea — dă-o. Nu-ți dau înapoi banii, nu-i cere, și de aceea:
+
+37. Nu judecați, nu vă judecați, nu pedepsiți, și nici pe voi nu vă vor judeca și pedepsi. Treceți-le tuturor cu vederea, și vouă vi se va trece cu vederea, pentru că, dacă îi veți judeca pe oameni, și ei vă vor judeca pe voi.
+
+Mat. VII, 1. Voi nu puteți judeca, pentru că voi, toți oamenii, sunteți orbi și nu vedeți dreptatea.
+
+3. Cum vei cerceta tu, cu ochii plini de gunoaie, paiul din ochiul fratelui? Mai întâi trebuie să-ți curăți singur ochii; dar cine are ochii curați?
+
+Luca VI, 39. Oare poate un orb să-l călăuzească pe un orb? Amândoi vor cădea în groapă. Așa și cei care judecă și pedepsesc sunt ca orbii care călăuzesc orbi.
+
+40. Cei care judecă și osândesc la silnicii, la răni, la schilodiri, la moarte vor să-i învețe pe oameni. Dar ce poate ieși din învățătura lor altceva decât că ucenicul va învăța și va ajunge întru totul ca învățătorul. Și ce va face el când va învăța? Chiar ceea ce face învățătorul: silnicie, omoruri.
+
+Mat. VII, 6. Și să nu credeți că veți găsi dreptatea la judecăți. A da iubirea de dreptate pe mâna judecăților omenești e totuna cu a arunca mărgăritarul scump porcilor: îl vor călca în picioare și vă vor sfâșia pe voi.
+
+Și de aceea *a patra poruncă:* oricât te-ar nedreptăți, nu te împotrivi răului, nu judeca și nu te judeca; nu te plânge și nu pedepsi.
+
+*A cincea poruncă.* Mat. V, 43. În legea de mai înainte este spus: fă bine oamenilor din poporul tău și fă rău străinilor.
+
+44. Iar eu vă spun: iubiți nu numai pe cei din țara voastră, ci și pe oamenii din popoare străine. Fie ca străinii să vă urască, fie ca să vă atace, să vă nedreptățească; lăudați-i și faceți-le bine.
+
+Mat. V, 46. Dacă sunteți buni numai cu cei din țara voastră, apoi așa sunt toți buni cu cei din țara lor; și tocmai din aceasta vin războaiele. Iar voi fiți la fel față de toate popoarele, și veți fi fiii tatălui. Toți oamenii sunt copiii lui, prin urmare toți vă sunt frați.
+
+Și de aceea, iată *a cincea poruncă:* față de popoarele străine țineți același lucru pe care v-am spus să-l țineți între voi. Pentru tatăl tuturor oamenilor nu sunt nici popoare deosebite, nici împărății deosebite: toți sunt frați, <!-- vol. 24, p. 844 --> toți sunt fiii unui singur tată. Nu faceți deosebire între oameni după popoare și împărății.
+
+*Așa deci:* 1) Nu vă mâniați și fiți în pace cu toți; 2) nu vă desfătați cu pofta desfrânată; 3) nu jurați nimănui în nimic; 4) nu vă împotriviți răului, nu judecați și nu vă judecați și 5) nu faceți deosebire între diferite popoare și iubiți-i pe străini la fel ca pe ai voștri.
+
+Mat. VII, 12. Toate aceste porunci sunt într-una: tot ce doriți să vă facă vouă oamenii, aceea faceți-le și voi lor.
+
+Mat. VI, 1. Împliniți aceste porunci nu pentru lauda oamenilor. Dacă faceți pentru oameni, atunci tot de la oameni vă va fi și răsplata. Iar dacă nu pentru oameni, atunci răsplata vă va fi de la tatăl ceresc.
+
+2. Așa că, dacă faci bine oamenilor, nu trâmbița despre aceasta înaintea oamenilor. Așa fac înșelătorii, ca să-i laude oamenii. Ei și primesc ce doresc.
+
+3. Iar dacă faci bine oamenilor, fă așa încât nimeni să nu vadă, încât mâna stângă să nu știe ce face dreapta.
+
+4. Și tatăl tău va vedea aceasta și îți va da ceea ce îți trebuie.
+
+5. Și dacă vrei să te rogi, nu face cum se roagă înșelătorii. Înșelătorii iubesc să se roage în biserici, la vederea oamenilor. Ei fac aceasta pentru oameni și de la oameni și primesc pentru aceasta ceea ce doresc.
+
+6. Iar dacă vrei să te rogi, intră acolo unde să nu te vadă nimeni, și roagă-te tatălui tău spiritului; și tatăl va vedea ceea ce este în sufletul tău și îți va da ceea ce dorești în spirit.
+
+7. Cine se roagă nu flecărește cu limba, ca fățarnicii.
+
+8. Tatăl tău știe ce îți trebuie înainte să deschizi tu gura.
+
+9—13. Rugați-vă numai așa: Tatăl nostru, fără de început și fără de sfârșit, ca cerul!
+
+Să fie sfântă numai ființa ta.
+
+Să fie stăpânirea numai a ta, așa încât voia ta să se împlinească fără de început și fără de sfârșit pe pământ.
+
+Dă-mi hrana vieții în prezent.
+
+Greșelile mele de mai înainte netezește-le și șterge-le, așa cum și eu netezesc și șterg toate greșelile fraților mei, ca să nu cad în ispită, să mă izbăvesc de rău.
+
+Pentru că a ta este stăpânirea și puterea și hotărârea ta.
+
+Marc. XI, 25. Dacă vă rugați, mai întâi de toate să nu țineți răul asupra nimănui.
+
+<!-- vol. 24, p. 845 --> 26. Iar dacă nu le iertați oamenilor nedreptatea, nici tatăl nu vă va ierta nedreptatea voastră.
+
+Mat. VI, 16. Dacă postiți, răbdați, nu arătați aceasta oamenilor; așa fac înșelătorii, ca să-i vadă oamenii și să-i laude. Și oamenii îi laudă, și ei primesc ce doresc.
+
+17, 18. Iar tu nu face așa; tu, dacă îndurii lipsă, umblă cu fața veselă, ca să nu vadă oamenii; iar tatăl tău va vedea și îți va da ceea ce îți trebuie.
+
+19. Nu vă strângeți provizii pe pământ. Pe pământ și viermele roade, și rugina este, și hoții fură; ci strângeți-vă bogăție cerească.
+
+20. Bogăția cerească nici viermele n-o roade, nici rugina n-o mănâncă, nici hoții n-o fură.
+
+21. Unde va fi bogăția voastră, acolo va fi și inima voastră.
+
+22. Lumina trupului — este ochiul, iar lumina sufletului — este inima.
+
+23. Dacă ochiul tău este întunecat, tot trupul va fi în întuneric. Iar dacă lumina inimii tale este întunecată, tot sufletul tău va fi în întuneric.
+
+24. Nu se poate sluji deodată la doi stăpâni. Pe unul îl mulțumești, pe celălalt îl nedreptățești. Nu se poate sluji lui Dumnezeu și trupului. Ori vei lucra pentru viața pământească, ori pentru Dumnezeu.
+
+25. De aceea nu vă îngrijiți de ce veți mânca și veți bea și cu ce vă veți îmbrăca. Doar viața este mai de mirare decât hrana și îmbrăcămintea, și Dumnezeu v-a dat-o.
+
+26. Priviți la făptura lui Dumnezeu, la păsări: ele nu seamănă, nu seceră, nu strâng, și Dumnezeu le hrănește. Înaintea lui Dumnezeu omul nu este mai prejos decât pasărea. Dacă Dumnezeu i-a dat omului viață, va ști să-l și hrănească.
+
+27. Doar voi singuri știți că, oricât v-ați zbate, nu puteți face nimic pentru voi. Nu puteți să vă lungiți viața nici cu un ceas.
+
+28. Și de îmbrăcăminte de ce să vă îngrijiți? Florile câmpului nu muncesc, nu torc.
+
+29. Și sunt împodobite așa, că nici Solomon, în tot luxul său, nu s-a împodobit vreodată așa.
+
+30. Ce, dacă Dumnezeu a împodobit așa iarba care azi crește, iar mâine o cosesc; atunci pe voi de ce nu v-ar îmbrăca?
+
+31. Nu vă îngrijiți și nu vă zbateți, nu spuneți că trebuie să ne gândim la ce vom mânca și cu ce ne vom îmbrăca.
+
+32. De acestea au nevoie toți oamenii, și Dumnezeu știe această nevoie a voastră.
+
+<!-- vol. 24, p. 846 --> 33. Așa că nu vă îngrijiți de viitor. Trăiți cu ziua de acum. Îngrijiți-vă să fiți în voia tatălui. Doriți ceea ce singur este important, iar restul va veni de la sine. Străduiți-vă numai să fiți în voia tatălui.
+
+34. Așa că nu vă îngrijiți de viitor. Când va veni viitorul, atunci va fi și grija. Destul rău este și în prezent.
+
+Luca XI, 9. Cereți — și vi se va da. Căutați — și veți găsi. Bateți — și vi se va deschide.
+
+Mat. VII, 9, 10. Oare este un asemenea tată care să-i dea fiului o piatră în loc de pâine sau un șarpe în loc de pește.
+
+11. Atunci cum de noi, oameni răi, știm să le dăm copiilor noștri ceea ce le trebuie, iar tatăl vostru din cer să nu vă dea ceea ce vă trebuie cu adevărat, dacă îi cereți? Cereți, și tatăl ceresc va da viața spiritului celor care i-o cer.
+
+13. Îngustă este calea spre viață, dar intrați pe calea îngustă. Intrarea în viață este numai una: ea este îngustă și strâmtă. Iar de jur împrejur câmpul este mare și larg, dar el duce la pieire.
+
+14. Numai calea îngustă duce la viață; și puțini o găsesc.
+
+Luca XII, 32. Dar nu te teme, turmă mică! Tatăl v-a hărăzit împărăția.
+
+Mat. VII, 15. Numai păziți-vă de profeții mincinoși, de învățători; ei vin la voi în piei de oaie, iar înăuntru sunt lupi răpitori.
+
+16. După roade, după ceea ce se naște din ei, îi veți cunoaște. De pe brusture nu se culeg struguri și de pe plop tremurător mere.
+
+17. Iar pomul bun face roade bune. Iar pomul rău face roade rele. Așa că iată, după roadele învățăturii lor să-i cunoașteți.
+
+Luca VI, 45. Omul bun scoate din inima sa bună tot ce e bun. Iar omul rău scoate din inima sa rea ce e rău, pentru că din prisosul inimii vorbește gura. Și de aceea, dacă învățătorii învață să faci altor oameni ceea ce este rău pentru voi înșivă: învață silnicii, execuții, războaie, — să știți că aceștia sunt învățători mincinoși.
+
+Mat. VII, 21. Pentru că nu acela care spune: Doamne, Doamne! va intra în împărăția cerului, ci acela care împlinește voia tatălui ceresc.
+
+22. Ei vor spune: Doamne! Doamne! noi am învățat după învățătura ta și după învățătura ta am alungat răul.
+
+<!-- vol. 24, p. 847 --> 23. Dar eu mă lepăd de ei și le spun: nu, eu nu v-am recunoscut niciodată și nu vă recunosc. Plecați de la mine: voi faceți nelegiuire.
+
+24. Așadar, oricine a auzit aceste porunci ale mele: să nu te mânii, să nu desfrânezi, să nu juri, să nu te împotrivești răului, să nu deosebești poporul tău de cele străine, aude aceste porunci și le împlinește, acela, ca un om cu judecată, își zidește casa pe piatră.
+
+25. Și casa lui va rezista tuturor furtunilor.
+
+26. Iar acela care aude aceste porunci ale mele și nu le împlinește, acela, ca un om prost, își zidește casa pe nisip.
+
+27. Cum vine furtuna, cum îi dărâmă casa, și totul piere.
+
+Luca IV, 32. Și tot poporul se mira de această învățătură, pentru că învățătura lui Isus era cu totul alta decât învățătura legiștilor ortodocși. Legiștii ortodocși învățau o lege căreia trebuie să i te supui; iar Isus învăța că toți oamenii sunt liberi.
+
+Mat. IV, 14. Și asupra lui Isus Hristos s-a împlinit proorocia lui Isaia.
+
+16. Că oamenii care trăiau în întuneric, în întunericul morții, au văzut lumina vieții și că acela care a adus această lumină a dreptății nu va face oamenilor nicio silnicie și niciun rău, că el este blând și smerit.
+
+Mat. XII, 19. Că el, ca să aducă dreptatea în lume, nu se ceartă, nu strigă, că glasul lui tare nu se aude.
+
+20. Că el nu va rupe un pai și nu va stinge o candelă de noapte.
+
+21. Și că toată nădejdea oamenilor este în învățătura lui.
