@@ -2448,3 +2448,251 @@ XXIV, 1. Și Isus a plecat de la templu. Atunci ucenicii lui i-au spus: ei, dar 
 12. Și va fi multă fărădelege, și va fi puțină iubire.
 
 14. Dar când învățătura adevărată se va răspândi în toți oamenii, atunci va fi sfârșitul răului și al ispitelor.
+
+## Capitolul X LUPTA CU ISPITELE
+
+### ȘI DE ACEEA, CA SĂ NU CADĂ ÎN ISPITE, OMUL TREBUIE SĂ FIE ÎN FIECARE CEAS AL VIEȚII SALE ÎN UNIRE CU TATĂL. (ȘI NU NE DUCE PE NOI ÎN ISPITĂ.)
+
+#### CUPRINSUL CAPITOLULUI X
+
+Iudeii vedeau că învățătura lui Isus distruge statul, credința și naționalitatea, și totodată vedeau că nu-i pot combate învățătura, și de aceea s-au hotărât să-l ucidă. Nevinovăția și dreptatea îi opreau, dar marele preot Caiafa a născocit un asemenea argument după care Isus trebuia ucis, chiar dacă n-ar fi fost vinovat cu nimic. Caiafa a spus: nu trebuie să chibzuim dacă acest om este drept sau nu este drept; trebuie să chibzuim aceasta: vrem sau nu ca poporul nostru să rămână un popor iudeu aparte, sau vrem ca el să piară și să se risipească.
+
+Poporul va pieri și se va risipi dacă îl vom lăsa pe acest om, și nu-l vom ucide. Acest argument a hotărât lucrul, și ortodocșii l-au osândit pe Isus la moarte și au dat de știre poporului ca să-l prindă de îndată ce se va arăta în Ierusalim.
+
+Isus, deși știa de aceasta, s-a dus la Ierusalim pentru sărbătoarea paștelui. Ucenicii îl rugau să nu se ducă, dar Isus a spus: ceea ce vor să facă ortodocșii cu mine și tot ceea ce pot face alți oameni nu poate schimba pentru mine adevărul.
+
+Dacă văd lumina, știu unde sunt și unde mă duc. Numai acela care nu cunoaște adevărul se poate teme de ceva și se poate îndoi de orice ar fi. Numai acela care nu vede, numai acela se poticnește. Și el s-a dus spre Ierusalim. Pe drum s-a oprit în Betania. În Betania, Maria a turnat peste el un ulcior de mir scump. Știind că îl așteaptă o moarte trupească apropiată, <!-- vol. 24, p. 907 --> Isus le-a spus ucenicilor, la mustrările lor către Maria, de ce a turnat peste el atâta mir scump, că mirul pe care l-a turnat ea este pregătirea trupului său pentru moarte.
+
+Când Isus a ieșit din Betania și s-a dus la Ierusalim, mulțimi de popor l-au întâmpinat și au mers după el, și aceasta i-a convins și mai mult pe ortodocși de necesitatea de a-l ucide. Ei așteptau numai prilejul să-l prindă. Și Isus știa aceasta. El știa și că cel mai mic cuvânt neprevăzător al lui împotriva legii va fi acum prilej de execuție, dar, în ciuda acestui fapt, a intrat în templu și a vestit din nou că vechea cinstire a lui Dumnezeu a iudeilor prin jertfe și libații este — mincinoasă, și și-a propovăduit învățătura. Dar învățătura lui, întemeiată pe profeți, era de așa natură încât ortodocșii tot nu puteau găsi o încălcare vădită a legii, una pentru care să-l poată da morții, cu atât mai mult cu cât cea mai mare parte a poporului de rând era de partea lui Isus. Dar aici, la sărbătoare, erau păgâni și, auzind despre învățătura lui Isus, voiau să vorbească cu Isus despre învățătura lui. Ucenicii, auzind de aceasta, s-au speriat. Se temeau ca în discuția cu păgânii Isus să nu se dea de gol și să nu înrăiască poporul. La început n-au vrut să-l aducă pe Isus laolaltă cu păgânii, dar apoi s-au hotărât să-i spună că păgânii vor să vorbească cu el.
+
+Auzind aceasta, Isus s-a tulburat. El a înțeles că propovăduirea lui înaintea păgânilor va arăta vădit lepădarea lui de toată legea iudaică, va abate de la el mulțimea grosolană și le va da ortodocșilor prilejul să-l învinuiască de legături cu păgânii urâți. Isus s-a tulburat știind aceasta, dar totodată știa că chemarea lui este să le lămurească oamenilor, fiii unui singur tată, unitatea lor, fără deosebire de credințe. Știa că acest pas îi va pierde viața trupească, dar că această pieire le va da oamenilor adevărata înțelegere a vieții, și de aceea a spus: precum bobul de grâu trebuie să piară ca să nască rod, tot așa și omul trebuie să-și dea viața trupească ca să nască un rod spiritual. Cine își păzește viața trupească se lipsește de cea adevărată, iar cine nu o păzește pe cea trupească o primește pe cea adevărată. Sunt tulburat de ceea ce mă așteaptă, dar doar am trăit până acum numai ca să ajung la acest ceas, atunci cum să nu fac în acest ceas ceea ce trebuie să fac? De aceea, chiar în acest ceas, să se arate în mine voia tatălui.
+
+Și întorcându-se către popor — către păgâni și iudei — Isus a spus pe față ceea ce îi spusese numai în taină lui Nicodim. El <!-- vol. 24, p. 908 --> a spus: viața omenească, cu credințele ei diferite și cu stăpânirile ei diferite, trebuie schimbată toată. Toate stăpânirile omenești trebuie să se nimicească. Trebuie înțeleasă numai însemnătatea omului ca fiu al tatălui vieții, și această înțelegere nimicește toate despărțirile omenești și stăpânirile și îi unește pe toți oamenii laolaltă. Iudeii au spus: tu ne distrugi toată credința. După legea noastră există Hristosul, iar tu spui că există numai fiul omului și că el trebuie înălțat. Ce înseamnă aceasta? El le-a răspuns: a-l înălța pe fiul omului înseamnă a trăi cu acea lumină a înțelegerii care este în oameni, ca, atâta timp cât este lumina, să trăiești cu această lumină. Eu nu învăț nicio credință nouă, ci numai ceea ce fiecare știe în sine. Fiecare cunoaște în sine viața. Și fiecare știe că viața i-a fost dată lui și tuturor oamenilor de tatăl vieții. Învățătura mea este numai în aceasta, să iubești viața dată de tatăl tuturor oamenilor.
+
+Mulți dintre oamenii fără ranguri l-au crezut pe Isus; iar cei însemnați și cu ranguri nu l-au crezut, pentru că nu voiau să judece sensul veșnic al cuvântării lui, ci judecau numai însemnătatea vremelnică a învățăturii lui. Vedeau că el întoarce poporul de la ei și voiau să-l ucidă, dar se temeau să-l prindă pe față și de aceea voiau să-l prindă nu în Ierusalim și ziua, ci undeva în taină. Și a venit la ei unul dintre cei doisprezece ucenici, Iuda Iscarioteanul, și ei l-au mituit ca să-i aducă pe slujitorii lor asupra lui, când Isus nu va fi în mijlocul poporului. Iuda le-a făgăduit și s-a dus iar la Isus, pândind vremea când e mai bine să-l vândă.
+
+În prima zi de sărbătoare Isus a ținut paștele cu ucenicii, și Iuda, crezând că Isus nu știe de trădarea lui, era cu ei. Dar Isus știa că Iuda l-a vândut și, când stăteau cu toții la masă, Isus a luat pâinea, a frânt-o în douăsprezece părți și a dat câte o bucată fiecărui ucenic, și lui Iuda la fel ca și celorlalți, și, fără să numească pe nimeni, a spus: luați, mâncați trupul meu. Și apoi a luat paharul cu vin, li l-a dat, ca să bea toți, și Iuda, din el, și a spus: unul dintre voi îmi va vărsa sângele. Beți sângele meu. Apoi Isus s-a ridicat și a început să le spele picioarele tuturor ucenicilor, și lui Iuda, și când a terminat, a spus: știu că unul dintre voi mă va vinde la moarte și îmi va vărsa sângele, dar eu l-am hrănit și l-am adăpat și i-am spălat picioarele. Am făcut aceasta ca să vă învăț cum trebuie să vă purtați cu cei care vă fac rău. Dacă veți face așa, veți fi fericiți. Iar ucenicii tot întrebau cine dintre ei este trădătorul. Dar Isus nu l-a numit, ca să nu-l pedepsească. Iar când s-a întunecat, Isus l-a arătat <!-- vol. 24, p. 909 --> pe Iuda și totodată i-a poruncit să plece. Iuda s-a ridicat de la masă și a fugit, și nimeni nu l-a oprit. Atunci Isus a spus: iată ce înseamnă a-l înălța pe fiul omului. A-l înălța pe fiul omului înseamnă a fi la fel de bun ca tatăl, nu numai cu cei care ne iubesc, ci cu toți, și cu cei care ne fac rău. Și de aceea nu chibzuiți asupra învățăturii mele, nu o cercetați, cum făceau ortodocșii, ci faceți ceea ce am făcut eu și ceea ce am făcut acum înaintea voastră. O singură poruncă vă dau: iubiți oamenii. Toată învățătura mea stă în a-i iubi pe oameni întotdeauna și până la capăt. După aceasta, pe Isus l-a cuprins frica, și el a mers cu ucenicii noaptea într-o grădină, ca să se ascundă. Și pe drum le-a spus: voi toți nu sunteți tari și toți sunteți fricoși: dacă vor veni să mă prindă, vă veți risipi toți. La aceasta Petru i-a spus: nu, eu nu te voi părăsi și te voi apăra, chiar până la moarte. Și toți ucenicii au spus același lucru. Și atunci Isus a spus: dacă e așa, atunci pregătiți-vă de apărare, luați merinde, pentru că va trebui să ne ascundem, și luați arme, ca să ne apărăm. Ucenicii au spus că au două cuțite. Și când Isus a auzit acest cuvânt despre cuțite, l-a cuprins mâhnirea. Și, intrând într-un loc pustiu, a început să se roage și îi îndemna și pe ucenici la aceasta; dar ucenicii nu-l înțelegeau. Isus a spus: tatăl meu, spiritule! curmă în mine lupta ispitirii. Întărește-mă în împlinirea voii tale, nu vreau voia mea, ca să-mi apăr viața trupească, ci vreau voia ta, ca să nu mă împotrivesc răului. Ucenicii tot nu-l înțelegeau. Și el le-a spus: nu vă gândiți la cele trupești, ci încercați să vă ridicați cu spiritul: puterea este în spirit, trupul este neputincios. Și a doua oară a spus: tatăl meu! dacă suferințele sunt de neocolit, să fie; dar și în suferințe doresc un singur lucru, să se săvârșească în mine nu voia mea, ci a ta. Ucenicii nu înțelegeau. Și el s-a luptat iar cu ispitirea și, în cele din urmă, biruind-o și apropiindu-se de ucenici, a spus: acum s-a hotărât, puteți fi liniștiți, nu mă voi lupta și mă voi da în mâinile oamenilor acestei lumi.
+
+Luc. XI, 53. După aceasta arhiereii ortodocși au început să-i sape din toate puterile lui Isus, ca să-l piardă cumva.
+
+Ioan XI, 47. Ei s-au adunat în sfat și au început să judece. Ei spuneau: trebuie să-l oprim cumva pe acest om.
+
+48. El își dovedește în așa fel învățătura, încât, dacă îl lăsăm, toți vor crede în el și vor părăsi credința noastră. Și acum jumătate <!-- vol. 24, p. 910 --> din popor a crezut în el. Iar dacă iudeii vor crede în învățătura lui, că toți oamenii sunt fiii unui singur tată și frați, că în poporul nostru evreiesc nu este nimic deosebit de celelalte popoare, atunci romanii ne vor lua cu totul, și nu va mai fi împărăție evreiască.
+
+Luc. XIX, 47. Și mult s-au sfătuit arhiereii ortodocși și învățații și nu puteau născoci ce să facă cu el.
+
+48. Nu se puteau hotărî să-l ucidă.
+
+Ioan XI, 49. Și atunci unul dintre ei, Caiafa (el era mare preot în anul acela), a născocit iată ce: le-a spus:
+
+50. Trebuie să ținem minte iată ce: este folositor să ucizi un om ca să nu piară tot poporul. Dacă îl lăsăm pe acest om, poporul va pieri, aceasta v-o prezic, și de aceea e mai bine să-l ucidem pe Isus.
+
+52. Chiar dacă poporul nu va pieri, totuși se va risipi și se va depărta de credința unică, dacă nu-l vom ucide pe Isus. Și de aceea e mai bine să-l ucidem.
+
+53. Și când Caiafa a spus aceasta, atunci toți au hotărât că n-ai la ce te mai gândi și trebuie neapărat să-l ucidă pe Isus.
+
+54. L-ar fi prins pe Isus chiar atunci și l-ar fi ucis, dar el se ascundea de ei în pustie.
+
+55. Dar în vremea aceea se apropia sărbătoarea paștelui, și mult popor se aduna întotdeauna la Ierusalim pentru sărbătoare.
+
+56. Și arhiereii ortodocși socoteau că Isus va veni cu poporul la sărbătoare.
+
+57. Iată, ei au dat de știre în popor ca, dacă cineva îl va vedea pe Isus, să-l aducă la ei.
+
+Ioan XII, 1, 2. Și s-a întâmplat că, cu șase zile înainte de paști, Isus le-a spus ucenicilor: haideți spre Ierusalim. Și a mers cu ei.
+
+Ioan XI, 8. Și i-au spus ucenicii: nu te duce la Ierusalim; arhiereii au hotărât acum să te ucidă cu pietre. Dacă vei veni, te vor ucide.
+
+9. Și Isus le-a spus: eu nu mă pot teme de nimic, pentru că trăiesc în lumina înțelegerii. Și precum orice om, ca să nu se poticnească, poate umbla ziua, și nu noaptea, tot așa orice om, ca să nu se îndoiască de nimic și să nu se teamă de nimic, poate trăi prin înțelegere.
+
+10. Numai acela se îndoiește și se teme care trăiește prin trup; iar pentru cine trăiește prin înțelegere nu este nimic nici îndoielnic, nici înfricoșător.
+
+<!-- vol. 24, p. 911 --> Ioan XII, 2. Și Isus a venit în satul Betania, lângă Ierusalim, la Marta și la Maria. Și surorile i-au făcut acolo o cină. Și când stătea la cină, Marta îi slujea.
+
+3. Iar Maria a luat un funt de mir scump, curat, mirositor, l-a turnat pe picioarele lui Isus și i le ștergea cu părul ei. Și când s-a răspândit prin toată odaia mireasma mirului,
+
+4. Iuda Iscarioteanul a spus:
+
+5. în zadar a cheltuit Maria mirul scump. Mai bine s-ar fi vândut mirul acesta cu trei sute de grivne și s-ar fi dat săracilor.
+
+8. Iar Isus a spus: săraci veți mai avea, dar pe mine curând nu mă veți mai avea.
+
+7. Ea a făcut bine aceasta, mi-a pregătit trupul pentru înmormântare.
+
+12. Dimineața Isus s-a dus la Ierusalim. Era mult popor pentru sărbătoare.
+
+13. Și când l-au recunoscut pe Isus, l-au înconjurat, au început să rupă ramuri din copaci și își aruncau hainele pe drum înaintea lui și toți strigau: iată-l, împăratul nostru adevărat, acela care ne-a învățat despre Dumnezeul adevărat.
+
+14. Isus s-a așezat pe un mânz de asin și mergea pe el, iar poporul alerga înaintea lui și striga.
+
+Mt. XXI, 10. Și așa a intrat Isus în Ierusalim. Și când a intrat astfel în oraș, s-a tulburat tot poporul și întreba: cine este acesta?
+
+11. Și cei care îl cunoșteau răspundeau: acesta este Isus, profetul din Nazaretul Galileii.
+
+15. Și a intrat Isus în templu și iarăși i-a izgonit de acolo pe toți vânzătorii și cumpărătorii.
+
+Ioan XII, 19. Și arhiereii ortodocși vedeau toate acestea și își spuneau unul altuia: priviți ce face omul acesta. Tot poporul merge după el.
+
+Marc. XI, 18. Dar nu îndrăzneau să-l ia de-a dreptul din mijlocul poporului, pentru că vedeau că poporul s-a alipit de el, și născoceau cum să-l ia prin viclenie.
+
+Ioan XII, 20. În vremea aceasta Isus era în templu și învăța poporul. În popor, în afară de iudei, erau greci păgâni. Grecii auziseră despre învățătura lui Isus și îi înțelegeau învățătura astfel, că el învață adevărul nu numai pe evrei, ci pe toți oamenii.
+
+21. Și de aceea voiau să fie și ei ucenicii lui și i-au spus despre aceasta lui Filip.
+
+<!-- vol. 24, p. 912 --> 22. Iar Filip i-a spus lui Andrei. Ucenicii se temeau să-l aducă pe Isus laolaltă cu grecii. Se temeau ca poporul să nu se înrăiască împotriva lui Isus pentru că el nu recunoaște deosebirea dintre evrei și celelalte popoare, și multă vreme nu s-au hotărât să-i spună aceasta lui Isus, dar apoi i-au spus-o amândoi împreună. Auzind că grecii doresc să fie ucenicii lui, Isus s-a tulburat. El știa că poporul îl va urî pentru că nu face deosebire între iudei și păgâni, pentru că el însuși se recunoaște la fel ca păgânii.
+
+23. El a spus: a venit ceasul să lămuresc ceea ce înțeleg eu prin fiul omului. Și chiar dacă voi pieri pentru că lămuresc însemnătatea fiului omului fără deosebire între iudei și păgâni, eu voi spune adevărul.
+
+24. Bobul de grâu aduce rod numai atunci când piere el însuși.
+
+25. Acela care își iubește viața trupească pierde viața adevărată, iar cine nesocotește viața trupească o păstrează în viața veșnică.
+
+26. Cine vrea să slujească învățăturii mele, acela să facă același lucru ca și mine. Iar cine face același lucru ca și mine va fi răsplătit de tatăl meu.
+
+27. Sufletul meu se luptă acum: mă voi da socotelilor vieții vremelnice sau voi împlini voia tatălui acum, în acest ceas. Și ce, oare acum, când a venit acel ceas în care trăiesc, voi spune: tată, izbăvește-mă de ceea ce trebuie să fac. Nu pot să spun aceasta, pentru că trăiesc acum.
+
+28. Și de aceea spun: tată! arată-te în mine.
+
+31. Și a spus Isus: de acum lumea oamenilor este osândită la pieire. De acum ceea ce stăpânește această lume va fi nimicit.
+
+32. Și când fiul omului va fi preamărit deasupra vieții pământești, el îi va uni pe toți într-una.
+
+34. Și atunci iudeii i-au spus: noi înțelegem din lege că există un Hristos veșnic; cum spui atunci că trebuie să fie preamărit fiul omului? Ce înseamnă a-l preamări pe fiul omului?
+
+35. La aceasta Isus le-a răspuns: a-l preamări pe fiul omului înseamnă a trăi cu acea lumină a înțelegerii care este în voi.
+
+36. A-l preamări pe fiul omului deasupra celor pământești înseamnă a crede în lumină cât timp este lumină, ca să fii fiu al înțelegerii.
+
+<!-- vol. 24, p. 913 --> 44. Acela care crede în învățătura mea nu crede în mine, ci în acel spirit care a dat viață lumii.
+
+45. Și acela care înțelege învățătura mea înțelege acel spirit care a dat viață lumii.
+
+46. Învățătura mea — aceasta este lumina vieții, care i-a scos pe oameni din întuneric.
+
+47. Iar dacă cineva aude cuvintele mele și nu le împlinește, eu nu-l învinuiesc, întrucât nu am venit să învinuiesc, ci să mântuiesc.
+
+48. Pe acela care nu primește cuvintele mele nu-l învinuiește învățătura mea, ci înțelegerea care este în el. Tocmai ea îl și învinuiește.
+
+49. Pentru că eu n-am spus ce era al meu, ci am spus ceea ce îmi insufla tatăl meu, spiritul care trăiește în mine.
+
+50. Ceea ce spun eu — este ceea ce mi-a spus spiritul înțelegerii. Și ceea ce învăț eu — este viața adevărată.
+
+Ioan XII. 36. Și, spunând aceasta, Isus a plecat și iarăși s-a ascuns de arhierei.
+
+42. Și dintre cei care auziseră aceste cuvinte ale lui Isus, mulți dintre oamenii puternici și bogați au crezut în învățătura lui Isus, dar se temeau să mărturisească înaintea arhiereilor, pentru că dintre arhierei niciunul nu mărturisea că ar crede.
+
+43. Pentru că se obișnuiseră să judece omenește, și nu dumnezeiește.
+
+Mt. XXVI, 3. După ce Isus s-a ascuns, arhiereii și bătrânii s-au adunat din nou în curtea lui Caiafa.
+
+4. Și au început să născocească cum să-l prindă pe Isus pe ascuns de popor și să-l ucidă.
+
+5. Pe față se temeau să-l înșface.
+
+14. Și a venit la ei la sfat unul dintre cei dintâi doisprezece ucenici ai lui Isus, Iuda Iscarioteanul.
+
+15. Și a spus: dacă vreți să-l prindeți pe Isus pe ascuns, așa încât să nu vadă poporul, eu voi găsi vremea când va fi puțin popor cu el, și vă voi arăta unde este, și atunci îl veți prinde. Ce-mi dați însă pentru aceasta? Ei i-au făgăduit pentru aceasta treizeci de ruble.
+
+16. El s-a învoit și de atunci a început să aleagă vremea când să-i aducă pe arhierei asupra lui Isus, ca să-l prindă.
+
+17. În vremea aceasta Isus se ascundea de popor, și erau cu el numai ucenicii. Când s-a apropiat prima zi a „azimelor”, ucenicii îi spun lui Isus: unde vom ține paștele?
+
+<!-- vol. 24, p. 914 --> 18. Iar Isus spune: duceți-vă undeva într-un sat și intrați la cineva și spuneți că n-avem vreme să pregătim paștele, rugați-l să ne lase să ținem paștele.
+
+19. Ucenicii așa au și făcut: au cerut găzduire într-un sat la un om, și el i-a primit.
+
+20. Iată, au venit și s-au așezat la masă: Isus și cei doisprezece ucenici, și Iuda cu ei.
+
+Ioan XIII. 1. Isus știa că Iuda Iscarioteanul făgăduise deja să-l vândă la moarte, dar nu l-a dat de gol și nu s-a răzbunat pentru aceasta pe Iuda, ci, precum toată viața îi învățase pe ucenici iubirea, așa și acum numai cu iubire l-a mustrat pe Iuda.
+
+Mt. XXVI, 21; Marc. XIX, 18. Când stăteau toți doisprezece la masă, el s-a uitat la ei și a spus: între voi stă acela care m-a vândut.
+
+Mt. XXVI, 23. Da, acela care bea și mănâncă cu mine, acela mă va și pierde.
+
+26. Și mai mult n-a spus nimic. Încât ei nici n-au aflat despre cine vorbea, și au început să cineze. Când au început să mănânce, Isus a luat pâinea, a frânt-o în douăsprezece părți, a dat fiecăruia dintre cei doisprezece ucenici câte o bucată și a spus: luați, mâncați — acesta este trupul meu.
+
+27. Și apoi a turnat vin în pahar, l-a dat ucenicilor și a spus: beți din acest pahar toți. Și când au băut toți, el a spus:
+
+28. Acesta este sângele meu. Îl vărs ca oamenii să cunoască testamentul meu, de a le ierta altora păcatele.
+
+Luc. XXII, 18. Pentru că în curând voi muri și nu voi mai fi cu voi în această lume, ci mă voi uni cu voi numai în împărăția cerului.
+
+Ioan XIII, 4. Și după aceasta Isus s-a ridicat de la masă, s-a încins cu un ștergar, a luat un ulcior cu apă.
+
+5. Și a început să le spele picioarele tuturor ucenicilor.
+
+6. Și s-a apropiat de Petru, iar Petru spune: cum, tu îmi vei spăla picioarele?
+
+7. Isus i-a spus: Ți se pare ciudat că îți spăl picioarele, dar vei afla îndată de ce fac aceasta.
+
+10. Fac aceasta pentru că, deși sunteți curați, nu toți, ci între voi este trădătorul meu, căruia i-am dat din mâinile mele pâine și vin și căruia vreau să-i spăl picioarele.
+
+12. Și când Isus le-a spălat tuturor picioarele, s-a așezat din nou și spune: ați înțeles de ce am făcut aceasta?
+
+<!-- vol. 24, p. 915 --> 14. Am făcut aceasta pentru ca voi să faceți întotdeauna același lucru unii altora. Eu, învățătorul vostru, fac aceasta ca să știți cum trebuie să vă purtați cu cei care vă fac rău.
+
+17. Dacă ați înțeles aceasta și o veți face, veți fi fericiți.
+
+18. Când am spus că unul dintre voi mă va vinde, nu despre voi toți vorbeam, pentru că numai unul dintre voi, dintre aceia cărora le-am spălat picioarele și care a mâncat pâine cu mine, unul dintre voi mă va pierde.
+
+21. Și, spunând aceasta, Isus s-a tulburat cu spiritul și a mai spus o dată: da, da, unul dintre voi mă va vinde.
+
+22. Și iarăși au început ucenicii să se uite unii la alții și nu știau despre cine vorbește.
+
+23. Un ucenic ședea aproape de Isus.
+
+24. Simon-Petru i-a făcut semn să-l întrebe cine este trădătorul.
+
+25. Acela l-a întrebat.
+
+26. Isus a spus: voi muia o bucată și o voi da, și cui o voi da, acela este trădătorul. Și i-a dat-o lui Iuda Iscarioteanul.
+
+27. Și i-a spus: ce vrei să faci, fă mai repede.
+
+30. Și Iuda a înțeles că trebuie să plece, și, cum a luat bucata, a și plecat. Și nu se mai putea alerga după el.
+
+31. Și când a plecat Iuda, Isus a spus: acum vă este limpede ce este fiul omului, acum vă este limpede că în el este Dumnezeu, că el poate fi la fel de bun ca Dumnezeu însuși.
+
+33. Copii! Încă puțin voi mai fi cu voi. Nu filozofați despre învățătura mea, cum le-am spus ortodocșilor, ci faceți ceea ce fac eu.
+
+34. Vă dau o singură poruncă nouă: precum eu v-am iubit întotdeauna și până la capăt pe toți, așa și voi iubiți-vă întotdeauna și până la capăt unii pe alții.
+
+35. Numai prin aceasta vă veți deosebi. Numai prin aceasta să vă deosebiți de ceilalți oameni: iubiți-vă unii pe alții.
+
+Mt. XXVI, 30. Și după aceasta s-au dus pe Muntele Măslinilor.
+
+31. Și pe drum le-a spus Isus: iată, vine vremea să se întâmple ceea ce este spus în scriptură: că vor ucide păstorul și oile se vor risipi toate. Și în noaptea aceasta va fi aceasta. Pe mine mă vor prinde, și voi toți mă veți părăsi și vă veți risipi.
+
+33. Și drept răspuns i-a spus Petru: chiar dacă toți se vor speria și se vor risipi, eu nu mă voi lepăda de tine. Cu tine sunt gata și în temniță, și la moarte.
+
+<!-- vol. 24, p. 916 --> 34. Iar Isus îi spune: iar eu îți spun că în noaptea aceasta, înainte de cântatul cocoșilor, când mă vor prinde, tu nu o dată, ci de trei ori te vei lepăda de mine.
+
+35. Dar Petru a spus că nu se va lepăda: același lucru au spus și ucenicii.
+
+Luc. XXII, 35. Și atunci Isus le-a spus ucenicilor: înainte nu ne trebuia nimic, nici mie, nici vouă. Umblați fără traistă și fără încălțăminte de schimb; și eu așa v-am și poruncit.
+
+36. Iar acum, dacă m-au socotit nelegiuit, nu mai putem fi așa, ci trebuie să ne aprovizionăm cu toate și să ne aprovizionăm cu cuțite, ca să nu ne piardă degeaba.
+
+38. Și ucenicii au spus: iată, avem două cuțite. Isus a spus: bine!
+
+Ioan XVIII, 1; Mt. XXVI, 36. Și, spunând aceasta, Isus a mers cu ucenicii în grădina Ghetsimani. Și, venind în grădină, Isus a spus: să stăm aici puțin, vreau să mă rog.
+
+Mt. XXVI, 37. Și, apropiindu-se de Petru și de cei doi frați ai lui Zevedeu, a început să se chinuie și să se mâhnească.
+
+38. Și le-a spus: foarte greu îmi e, mă mâhnesc înaintea morții. Rămâneți aici și nu vă descurajați așa ca mine.
+
+39. Și s-a depărtat puțin, s-a culcat pe pământ cu fața în jos și a început să se roage și a spus: Tatăl meu, spiritule! să nu fie cum vreau eu, ca să nu mor, ci cum vrei tu. Să mor, pentru tine, ca spirit, totul este cu putință; fă ca să nu mă tem de moarte, ca să nu fie pentru mine ispitirea trupului.
+
+40. Și apoi s-a ridicat, a venit la ucenici și vede că ei s-au descurajat. Și le-a spus: cum veți izbuti voi un ceas să vă ridicați cu spiritul la fel ca mine?
+
+41. Ridicați-vă cu spiritul, ca să nu cădeți în ispitirea trupului. Spiritul este tare, trupul este slab.
+
+42. Și iarăși Isus s-a depărtat de ei și iarăși a început să se roage și a spus: tată! dacă nu se poate să nu sufăr și trebuie să mor, atunci să mor, fie voia ta!
+
+43. Și, spunând aceasta, iarăși a venit la ucenici și vede: ei s-au descurajat și mai mult și sunt gata să plângă.
+
+44. Și el iarăși s-a depărtat de ei și a treia oară a spus: tată! fie voia ta.
+
+45. Atunci s-a întors la ucenici și le-a spus: acum liniștiți-vă și fiți potoliți, pentru că acum s-a hotărât deja că mă voi da în mâinile oamenilor lumești.
+
+<!-- vol. 24, p. 917 -->
