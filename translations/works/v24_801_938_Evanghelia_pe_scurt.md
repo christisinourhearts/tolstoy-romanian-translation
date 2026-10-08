@@ -2719,7 +2719,7 @@ Ioan XIII, 36. Și Petru i-a spus lui Isus: unde te duci? Isus a răspuns: nu ve
 
 37. Și a spus Petru: de ce crezi tu că eu acum nu sunt în stare să merg acolo unde mergi și tu? Îmi voi da viața pentru tine.
 
-38. Și a spus Isus: spui că îți vei da viața pentru mine, dar să nu te lepezi tu de mine de trei ori încă înainte de cântatul cocoșilor.
+38. Și a spus Isus: spui că îți vei da viața pentru mine, dar ca nu cumva să te lepezi tu de mine de trei ori încă înainte de cântatul cocoșilor.
 
 XIV, 1. Și Isus le-a spus ucenicilor: nu vă tulburați și nu vă temeți, ci credeți în Dumnezeul adevărat al vieții și în învățătura mea.
 
