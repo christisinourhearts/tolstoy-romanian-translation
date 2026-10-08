@@ -167,7 +167,7 @@ Evanghelia este vestirea că principiul a toate nu este un Dumnezeu exterior, cu
 
 Fără înțelegere nu este viață. Orice om este viu numai pentru că are înțelegere. Acei oameni care nu pricep aceasta și socotesc trupul drept principiu al vieții se lipsesc de viața adevărată. Iar cei care pricep că sunt vii nu prin trup, ci prin înțelegere, aceia au viața adevărată. Și tocmai această viață adevărată a arătat-o Isus Hristos. Recunoscând adevărul că viața omului provine din înțelegere, el le-a dat oamenilor învățătura și pilda vieții înțelegerii în trup.
 
-Credințele de mai înainte se exprimau ca o lege despre ce trebuie și ce nu trebuie făcut pentru slujirea lui Dumnezeu. Iar învățătura lui Isus Hristos constă în înțelegerea vieții. Pe Dumnezeul exterior nimeni nu l-a văzut vreodată și nu-l poate cunoaște, și de aceea slujirea Dumnezeului exterior <!-- vol. 24, p. 817 --> nu poate conduce viața. Numai recunoașterea ca temelie a tuturor, — a înțelegerii din sine, provenite din principiul înțelegerii, arată calea vieții.
+Credințele de mai înainte se exprimau ca o lege despre ce trebuie și ce nu trebuie făcut pentru slujirea lui Dumnezeu. Iar învățătura lui Isus Hristos constă în înțelegerea vieții. Pe Dumnezeul exterior nimeni nu l-a văzut vreodată și nu-l poate cunoaște, și de aceea slujirea Dumnezeului exterior <!-- vol. 24, p. 817 --> nu poate conduce viața. Numai recunoașterea ca temelie a tuturor, — a înțelegerii aflate în sine, provenite din principiul înțelegerii, arată calea vieții.
 
 Marc. I, 1. Vestirea despre binele lui Isus Hristos fiul lui Dumnezeu.
 
@@ -185,7 +185,7 @@ Ioan I, 1. Ca temelie și principiu a toate s-a așezat înțelegerea vieții. �
 
 10. Ea era în lume, și lumea este vie numai pentru că avea în sine lumina înțelegerii, dar lumea nu o păstra.
 
-11. Ea s-a arătat într-ale sale, dar ale sale nu o păstrau.
+11. Ea se arăta într-ale sale, dar ale sale nu o păstrau.
 
 12. Numai cei care au priceput înțelegerea, numai aceia au primit putința de a se face asemenea ei, prin aceea că au crezut în esența ei.
 
