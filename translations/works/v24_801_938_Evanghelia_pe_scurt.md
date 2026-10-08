@@ -154,3 +154,51 @@ Iar dacă cititorul face parte dintre oamenii care mărturisesc în chip exterio
 Pentru acești cititori sunt numai două ieșiri: pocăința smerită și renunțarea la minciuna lor, sau prigonirea celor ce îi demască pentru ceea ce au făcut și fac.
 
 Dacă nu se vor lepăda de minciună, le rămâne un singur lucru: să mă prigonească, la care eu, încheindu-mi scrierea, mă pregătesc cu bucurie și cu teamă pentru slăbiciunea mea. <!-- vol. 24, p. 816 -->
+
+## EVANGHELIA VESTIREA DESPRE BINELE LUI ISUS HRISTOS, FIUL LUI DUMNEZEU
+
+## INTRODUCERE **ÎNȚELEGEREA VIEȚII**
+
+## VESTIREA LUI ISUS HRISTOS A ÎNLOCUIT CREDINȚA ÎNTR-UN DUMNEZEU EXTERIOR CU ÎNȚELEGEREA VIEȚII
+
+#### CUPRINSUL INTRODUCERII
+
+Evanghelia este vestirea că principiul a toate nu este un Dumnezeu exterior, cum cred oamenii, ci înțelegerea vieții. Și de aceea în locul a ceea ce oamenii numesc Dumnezeu, după Evanghelie, se așază înțelegerea vieții.
+
+Fără înțelegere nu este viață. Orice om este viu numai pentru că are înțelegere. Acei oameni care nu pricep aceasta și socotesc trupul drept principiu al vieții se lipsesc de viața adevărată. Iar cei care pricep că sunt vii nu prin trup, ci prin înțelegere, aceia au viața adevărată. Și tocmai această viață adevărată a arătat-o Isus Hristos. Recunoscând adevărul că viața omului provine din înțelegere, el le-a dat oamenilor învățătura și pilda vieții înțelegerii în trup.
+
+Credințele de mai înainte se exprimau ca o lege despre ce trebuie și ce nu trebuie făcut pentru slujirea lui Dumnezeu. Iar învățătura lui Isus Hristos constă în înțelegerea vieții. Pe Dumnezeul exterior nimeni nu l-a văzut vreodată și nu-l poate cunoaște, și de aceea slujirea Dumnezeului exterior <!-- vol. 24, p. 817 --> nu poate conduce viața. Numai recunoașterea ca temelie a tuturor, — a înțelegerii din sine, provenite din principiul înțelegerii, arată calea vieții.
+
+Marcu I, 1. Vestirea despre binele lui Isus Hristos fiul lui Dumnezeu.
+
+Ioan I, 1. Ca temelie și principiu a toate s-a așezat înțelegerea vieții. Înțelegerea vieții s-a așezat în locul lui Dumnezeu. Înțelegerea vieții este Dumnezeu.
+
+2. Tocmai ea, după vestirea lui Isus, s-a așezat ca temelie și principiu a toate în locul lui Dumnezeu.
+
+3. Tot ce trăiește s-a născut la viață prin înțelegere. Și fără ea nu poate fi nimic viu.
+
+4. Înțelegerea dă viața adevărată.
+
+5. Înțelegerea — aceasta este lumina adevărului. Iar lumina luminează în întuneric, și întunericul nu o poate stinge.
+
+9. Lumina adevărată a fost întotdeauna în lume și luminează pe orice om care se naște în lume.
+
+10. Ea era în lume, și lumea este vie numai pentru că avea în sine lumina înțelegerii, dar lumea nu o păstra.
+
+11. Ea s-a arătat într-ale sale, dar ale sale nu o păstrau.
+
+12. Numai cei care au priceput înțelegerea, numai aceia au primit putința de a se face asemenea ei, prin aceea că au crezut în esența ei.
+
+13. Cei care au crezut că viața este în înțelegere s-au făcut nu fii ai trupului, ci fii ai înțelegerii.
+
+14. Și înțelegerea vieții, în persoana lui Isus Hristos, s-a arătat în trup, și i-am priceput sensul, anume că fiul înțelegerii, omul în trup, este de o fire cu tatăl — principiul vieții, întocmai ca tatăl, ca și principiul vieții.
+
+15. Învățătura lui Isus este credința desăvârșită și adevărată.
+
+16. Pentru că prin împlinirea învățăturii de către Isus am priceput o credință nouă în locul celei de mai înainte.
+
+17. Prin Moise a fost dată legea, dar credința adevărată, care constă în împlinirea înțelegerii, am priceput-o prin Isus Hristos.
+
+18. Pe Dumnezeu nimeni nu l-a văzut și nu-l vede niciodată, numai fiul, acela care este în tatăl, acela a arătat calea vieții.
+
+<!-- vol. 24, p. 818 -->
