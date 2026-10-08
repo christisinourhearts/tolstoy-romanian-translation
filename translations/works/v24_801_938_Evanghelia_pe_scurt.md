@@ -1361,7 +1361,7 @@ Mai mult decât orice pierde viața spiritului: lăcomia de câștig, agonisirea
 
 <!-- vol. 24, p. 863 --> Viața trupească — aceasta este bogăția străină, închipuită, încredințată nouă, pe care trebuie s-o folosim așa încât să primim bogăția noastră adevărată.
 
-Dacă la un om bogat va trăi un vechil și va ști că, oricât i-ar sluji stăpânului, stăpânul îl va concedia și îl va lăsa cu nimic, atunci acest vechil va lucra cu minte dacă, cât timp mai cârmuiește bogăția străină, va face bine oamenilor. Atunci, chiar dacă stăpânul îl va da afară, cei cărora le-a făcut bine îl vor primi și îl vor hrăni. Același lucru trebuie să-l facă oamenii cu viața lor trupească. Viața trupească este acea bogăție străină pe care ei o cârmuiesc numai pentru o vreme. Dacă vor folosi bine această bogăție străină, își vor primi bogăția lor adevărată.
+Dacă la un om bogat va trăi un vechil și va ști că, oricât i-ar sluji stăpânului, stăpânul îi va face socoteala și îl va lăsa cu nimic, atunci acest vechil va lucra cu minte dacă, cât timp mai cârmuiește bogăția străină, va face bine oamenilor. Atunci, chiar dacă stăpânul îl va da afară, cei cărora le-a făcut bine îl vor primi și îl vor hrăni. Același lucru trebuie să-l facă oamenii cu viața lor trupească. Viața trupească este acea bogăție străină pe care ei o cârmuiesc numai pentru o vreme. Dacă vor folosi bine această bogăție străină, își vor primi bogăția lor adevărată.
 
 Dacă nu ne vom da averea noastră falsă, nu ni se va da cea adevărată. Nu se poate sluji vieții false a trupului și spiritului; trebuie să slujești uneia sau celuilalt. Nu se poate sluji bogăției și lui Dumnezeu. Ceea ce este mare înaintea oamenilor, aceea este — urâciune înaintea lui Dumnezeu. Înaintea lui Dumnezeu bogăția este un rău. Bogatul e vinovat chiar prin aceea că mănâncă mult și cu lux, când săracii flămânzesc la ușile lui. Și toți știu că proprietatea pe care nu o dai altora este neîmplinirea voii tatălui.
 
@@ -1373,7 +1373,7 @@ Un om, Zaheu, a auzit învățătura lui Isus și a crezut în ea și, poftindu-
 
 Binele nu se poate măsura cu nimic; nu se poate spune cine a făcut mai mult, cine mai puțin. Văduva care dă ultimul sfert de copeică <!-- vol. 24, p. 864 --> dă mai mult decât bogatul care dă mii. El nu poate fi măsurat nici prin ce este folositor și nefolositor.
 
-Pildă despre cum trebuie făcut binele să fie femeia aceea căreia i s-a făcut milă de Isus și i-a turnat, fără socoteală, pe picioare mir scump de 300 de ruble. Iuda a spus că ea a făcut un lucru prostesc, că din aceștia s-ar fi putut hrăni mulți. Dar Iuda era hoț, el a mințit și, vorbind de folosul trupesc, nu se gândea la săraci. Nu folosul trebuie, nu cantitatea, ci trebuie întotdeauna, în orice clipă, împlinirea voii tatălui — întotdeauna, în orice clipă, să-i iubești pe alții și să le dai ce e al tău.
+Pildă despre cum trebuie făcut binele să fie femeia aceea căreia i s-a făcut milă de Isus și i-a turnat nebunește pe picioare untdelemn scump de 300 de ruble. Iuda a spus că ea a făcut un lucru prostesc, că din asta s-ar fi putut hrăni mulți. Dar Iuda era hoț, el a mințit și, vorbind de folosul trupesc, nu se gândea la săraci. Nu folosul trebuie, nu cantitatea, ci trebuie întotdeauna, în orice clipă, împlinirea voii tatălui — întotdeauna, în orice clipă, să-i iubești pe alții și să le dai ce e al tău.
 
 Luc. VIII, 19; Mat. XII, 46. Și au venit odată la Isus mama și frații lui și nu puteau nicicum să se vadă cu el, pentru că era mult popor în jurul lui Isus.
 
@@ -1423,7 +1423,7 @@ Luc. IX, 23. Și a spus Isus tuturor: cine vrea să meargă după mine, acela s�
 
 Luc. XII, 15. Și a spus Isus: păziți-vă deci de bogăție, pentru că viața ta nu vine din aceea că ai mai mult decât alții.
 
-16. Era un om bogat, și i s-a născut multă pâine.
+16. Era un om bogat, și i-a rodit multă pâine.
 
 17, 18. Și se gândește el în sine: ia să-mi prefac hambarele, să zidesc altele mari și să strâng acolo toate bogățiile mele.
 
@@ -1463,7 +1463,7 @@ Luc. XII, 54. Ca să înțelegi aceasta, nu trebuie nicio înțelepciune, oricin
 
 28. Pentru că oricine, înainte de a începe ceva, va socoti: este folositor ceea ce face, și dacă este folositor, face, iar dacă nu e folositor, lasă. Oricine zidește o casă doar se așază mai întâi și socotește: câți bani trebuie, câți are și dacă îi vor ajunge ca s-o termine.
 
-29. Ca să nu se întâmple că a început să zidească și n-a terminat, și oamenii râd.
+29. Ca să nu se întâmple așa: a început să zidească și n-a terminat, și oamenii râd.
 
 30. Tot așa și acela care vrea să trăiască viața trupească trebuie mai întâi să socotească: poate el duce la capăt ceea ce îl ocupă?
 
@@ -1505,7 +1505,7 @@ Un om era vechilul unui stăpân bogat, și vede vechilul că, iată-iată, stă
 
 9. Așa trebuie să facem și noi cu bogăția nedreaptă și falsă. S-o dăm ca să primim viața spiritului.
 
-10. Și dacă regretăm asemenea fleacuri, cum e bogăția, pentru viața spiritului, atunci nici nu ni se va da ea.
+10. Și dacă ne pare rău să dăm asemenea fleacuri, cum e bogăția, pentru viața spiritului, atunci nici nu ni se va da ea.
 
 11. Dacă nu vom da bogăția falsă, nu ni se va da nici viața noastră proprie.
 
@@ -1537,7 +1537,7 @@ Un om era vechilul unui stăpân bogat, și vede vechilul că, iată-iată, stă
 
 27. Atunci bogătașul spune: ei, atunci, părinte Avraame, trimite-l pe Lazăr cel râios măcar la mine acasă.
 
-28. Am cinci frați, mi-e milă de ei. Să le povestească totul și să le arate cât de vătămătoare este bogăția. Altfel să nu ajungă și ei în chinul acesta.
+28. Am cinci frați, mi-e milă de ei. Să le povestească totul și să le arate cât de vătămătoare este bogăția. Ca nu cumva să ajungă și ei în chinul acesta.
 
 29. Iar Avraam spune: ei știu și așa că e vătămătoare. Le-au spus-o și Moise, și toți profeții.
 
@@ -1599,15 +1599,15 @@ Luc. XII, 41. S-a întâmplat odată că Isus ședea cu ucenicii în fața cutie
 
 Mat. XXVI, 6. S-a întâmplat ca Isus să fie în casa lui Simon cel râios.
 
-7. Și a intrat în casă o femeie. Și avea această femeie un ulcior cu mir scump, curat, de 300 de ruble. Isus le spusese ucenicilor că moartea lui este aproape. A auzit aceasta femeia și i s-a făcut milă de el, și a vrut să-i arate iubirea ei și să-i ungă capul cu mir. Și a uitat de toate, și cât costă mirul, și a spart tot ulciorul, și i-a uns capul și picioarele, și a vărsat tot mirul.
+7. Și a intrat în casă o femeie. Și avea această femeie un ulcior cu untdelemn scump, curat, de 300 de ruble. Isus le spusese ucenicilor că moartea lui este aproape. A auzit aceasta femeia și i s-a făcut milă de el, și a vrut să-i arate iubirea ei și să-i ungă capul cu untdelemn. Și a uitat de toate, și cât costă untdelemnul, și a spart tot ulciorul, și i-a uns capul și picioarele, și a vărsat tot untdelemnul.
 
-<!-- vol. 24, p. 872 --> 8. Și au început ucenicii să judece între ei că rău a făcut ea. Și Iuda, cel care l-a vândut mai târziu pe Isus, a spus: iată câtă bunătate s-a pierdut degeaba!
+<!-- vol. 24, p. 872 --> 8. Și au început ucenicii să judece între ei că rău a făcut ea. Și Iuda, cel care l-a vândut mai târziu pe Isus, a spus: iată câte bunuri s-au pierdut degeaba!
 
-9. S-ar fi putut vinde mirul acesta cu trei sute de ruble și câți săraci s-ar fi putut ajuta! Și au început ucenicii s-o mustre pe femeie, și ea s-a tulburat și nu știa dacă a făcut bine sau rău.
+9. S-ar fi putut vinde untdelemnul acesta cu trei sute de ruble și câți săraci s-ar fi putut ajuta! Și au început ucenicii s-o mustre pe femeie, și ea s-a tulburat și nu știa dacă a făcut bine sau rău.
 
 10. Atunci Isus le-a spus: în zadar o tulburați pe femeie: ea a făcut cu adevărat un bine, și în zadar pomeniți de săraci.
 
-11. Dacă vreți să le faceți bine săracilor, faceți — ei sunt întotdeauna. De ce să vorbiți atunci despre ei? Dacă vă e milă de săraci, duceți-vă, fie-vă milă de ei, faceți-le bine; iar ei i-a fost milă de mine și a făcut un bine adevărat, pentru că a dat tot ce avea. Cine dintre voi poate ști ce este necesar și ce nu este necesar? De unde știți voi că nu era necesar să se verse mirul pe mine? Ea m-a uns cu mir așa, măcar ca să-mi pregătească trupul pentru îngropare, și pentru aceasta este necesar.
+11. Dacă vreți să le faceți bine săracilor, faceți — ei sunt întotdeauna. De ce să vorbiți atunci despre ei? Dacă vă e milă de săraci, duceți-vă, fie-vă milă de ei, faceți-le bine; iar ei i-a fost milă de mine și a făcut un bine adevărat, pentru că a dat tot ce avea. Cine dintre voi poate ști ce este necesar și ce nu este necesar? De unde știți voi că nu era necesar să se verse untdelemnul pe mine? Ea m-a uns cu untdelemn așa, măcar ca să-mi pregătească trupul pentru îngropare, și pentru aceasta este necesar.
 
 13. Ea a împlinit cu adevărat voia tatălui, s-a uitat pe sine și i-a fost milă de altul, a uitat socotelile trupești și a dat tot ce avea.
 
