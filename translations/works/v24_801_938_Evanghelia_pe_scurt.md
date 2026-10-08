@@ -2160,3 +2160,291 @@ Ei au trăit prin fiul omului, au simțit că el este unul în toți oamenii, ș
 Iar cei care n-au trăit prin fiul omului, aceia nu i-au slujit, n-au înțeles că el este unul în toți, și de aceea nu s-au unit cu el și și-au pierdut viața în el, și au pierit.
 
 <!-- vol. 24, p. 894 -->
+
+## Capitolul IX ISPITELE
+
+### AMĂGIRILE VIEȚII VREMELNICE ASCUND DE OAMENI VIAȚA ADEVĂRATĂ ÎN PREZENT. (ȘI NE IARTĂ NOUĂ DATORIILE NOASTRE, PRECUM ȘI NOI IERTĂM DATORNICILOR NOȘTRI.)
+
+#### CUPRINSUL CAPITOLULUI IX
+
+Omul se naște cu cunoașterea vieții adevărate a împlinirii voii tatălui. Copiii trăiesc prin ea, la copii se vede în ce stă voia tatălui. Ca să înțelegi învățătura lui Isus, trebuie să înțelegi viața copiilor și să fii întocmai ca ei. Copiii trăiesc întotdeauna în voia tatălui, fără să încalce cele cinci porunci. Ei nici nu le-ar încălca vreodată, dacă cei mari nu i-ar duce în ispite. Ducându-i pe copii în ispita încălcării poruncilor, oamenii îi pierd pe copii. Ispitindu-i pe copii, oamenii fac cu ei același lucru pe care l-ar face un om care i-ar lega altuia o piatră de moară de gât și l-ar arunca în râu. Dacă n-ar fi ispite, lumea ar fi fericită. Lumea este nefericită numai din cauza ispitelor. Ispitele — sunt răul pe care îl fac oamenii pentru binele închipuit al vieții vremelnice. Ispitele îi pierd pe oameni, și de aceea trebuie să jertfești totul ca să nu cazi în ispită. Ispita împotriva primei porunci constă în aceea că oamenii se socotesc curați înaintea oamenilor, iar pe alții datori față de ei. Ca să nu cadă în această ispită, oamenii trebuie să-și amintească faptul că toți oamenii sunt întotdeauna nesfârșit de datori față de tatăl și că se pot curăța de această datorie numai iertându-și frații. Și de aceea oamenii trebuie să le ierte oamenilor jignirile, fără să se tulbure de faptul că cel care jignește va jigni iar și iar.
+
+Ori de câte ori ar fi jignit omul, el trebuie să ierte și să ierte, fără să țină minte răul, pentru că împărăția cerului este cu putință numai prin iertare. Dacă nu iertăm, facem același lucru pe care l-a făcut datornicul. Un datornic cu o datorie mare a venit la stăpân și a început să ceară milă. Stăpânul i-a iertat totul. Datornicul s-a dus și a început să-l sugrume pe datornicul său, pe acela care îi datora puțin. Doar noi, ca să avem viață, trebuie să împlinim voia tatălui; iar de la tatăl cerem iertare pentru că nu i-am împlinit întru totul voia și nădăjduim să primim această iertare. Atunci ce facem dacă nu iertăm? Facem ceea ce ne temem pentru noi. Voia tatălui — este binele, iar răul — este ceea ce <!-- vol. 24, p. 895 --> ne desparte de tatăl, atunci cum să nu ne străduim să stingem răul cât mai repede, pentru că răul ne pierde și ne lipsește de viață. Răul ne leagă în pieirea trupească. Cât vom dezlega din acest rău, atâta dobândim viață. Dacă răul nu ne desparte și suntem uniți prin iubire, atunci avem tot ce putem dori.
+
+Ispita împotriva celei de-a doua porunci stă în aceea că noi credem că femeia este făcută pentru desfătarea trupească și că, lăsând o femeie și luând alta, primim mai multă desfătare. Ca să nu cazi în această ispită, trebuie să-ți amintești că voia tatălui nu este ca omul să se desfete cu farmecul femeiesc, ci ca fiecare, alegându-și o soție, să se unească cu ea într-un singur trup. Voia tatălui este ca fiecare bărbat să aibă o soție, iar fiecare soție să aibă un bărbat. Dacă un bărbat se va ține de o singură soție, atunci toți vor avea soții și toate vor avea bărbați. Iar de aceea cine își schimbă soția o lipsește pe soție de bărbat și îl face pe alt bărbat să o lase pe a sa și s-o ia pe cea lăsată. Se poate să nu ai soție, dar să ai mai mult de o soție nu se poate, pentru că, având altă soție, încalci voia tatălui, care constă în unirea unui singur bărbat cu o singură soție.
+
+Ispita împotriva celei de-a treia porunci constă în aceea că oamenii, pentru binele vieții vremelnice, au rânduit stăpâniri și cer de la oameni jurământ la împlinirea faptelor stăpânirii. Ca să nu cadă în această ispită, oamenii trebuie să-și amintească faptul că nu sunt datori nimănui, decât lui Dumnezeu, pentru viața lor. La cererile stăpânirilor oamenii trebuie să privească precum la niște silnicii și, după porunca neîmpotrivirii față de rău, să dea și să împlinească ceea ce cer de la ei stăpânirile: averea și munca, dar nu-și pot lega prin făgăduieli și jurăminte faptele în viitor. Jurămintele care sunt stoarse de la oameni îi fac răi. Omul care a recunoscut viața în voia tatălui nu poate face făgăduieli pentru faptele sale, pentru că pentru un asemenea om nu este nimic mai sfânt decât viața lui.
+
+Ispita împotriva celei de-a patra porunci stă în aceea că oamenii, dându-se răutății și răzbunării, cred că prin aceasta îi îndreaptă pe oameni. Dacă un om îl nedreptățește pe altul, oamenii cred că trebuie să-l pedepsească, și cred că dreptatea constă în ceea ce osândesc oamenii. Ca să nu cazi în această ispită, trebuie să-ți amintești că oamenii sunt chemați nu să judece, ci să se mântuiască unii pe alții. Și că despre nedreptatea altora ei nu pot judeca, pentru că ei înșiși sunt plini de nedreptate. Singurul lucru pe care îl pot face — este să-i învețe pe alții prin pilda curăției, a iertării și a iubirii.
+
+<!-- vol. 24, p. 896 --> Ispita împotriva celei de-a cincea porunci stă în aceea că oamenii cred că există o deosebire între oamenii poporului lor și ai popoarelor străine și că de aceea e necesar să se apere de popoarele străine și să le facă rău. Ca să nu cazi în această ispită, trebuie să știi că toate poruncile se întâlnesc într-una: să împlinești voia tatălui, care a dat viață și bine tuturor oamenilor, și de aceea să faci bine tuturor oamenilor, fără nicio deosebire. Alți oameni mai fac deosebire între popoare, se războiesc; omul care împlinește voia tatălui face bine oricărui om, din orice popor ar fi.
+
+Ca să nu cadă în niciuna dintre amăgirile omenești, omul trebuie să se gândească nu la cele trupești, ci la cele spirituale. Dacă omul a înțeles că viața lui stă numai în a fi acum în voia tatălui, atunci nici lipsurile, nici suferințele, nici moartea nu pot fi înfricoșătoare pentru el. Numai acela primește viața adevărată care în orice ceas este gata să-și dea viața trupească pentru împlinirea voii tatălui. Și pentru ca toți să înțeleagă ce este viața adevărată, aceea pentru care nu există moarte, Isus a spus: viața veșnică nu trebuie înțeleasă ca și cum ar fi o viață asemenea celei de acum, undeva și cândva. Pentru viața adevărată în voia tatălui nu există nici loc, nici timp. Nu-ți poți închipui viața adevărată în timp și în persoane. Cei care s-au trezit la viața adevărată trăiesc în voia tatălui, iar pentru voia tatălui nu există nici timp, nici loc. Ei sunt vii pentru tatăl. Chiar dacă au murit pentru noi, ei sunt vii pentru Dumnezeu. Și de aceea o singură poruncă le cuprinde pe toate: să iubești din toate puterile principiul vieții și de aceea pe orice om care poartă în sine acest principiu.
+
+Și Isus a spus: acest principiu al vieții este chiar Hristosul pe care îl așteptați. Înțelegerea acelui principiu al vieții pentru care nu există persoane deosebite, nu există timp și loc, aceea este fiul omului pe care îl învăț eu.
+
+Tot ce ascunde de oameni acest principiu al vieții este ispită. Este ispita cărturarilor, a staroverilor — nu vă lăsați în voia ei; sunt ispitele stăpânirii împărătești — nu vă lăsați în voia lor; și mai este ispita cea mai cumplită — a învățătorilor credinței care se numesc ortodocși. Păziți-vă de această ispită mai mult decât de toate celelalte, pentru că tocmai ei, acești învățători de la sine puși, născocind o cinstire mincinoasă a lui Dumnezeu, vă ademenesc de la Dumnezeul adevărat. Ei, în locul slujirii tatălui vieții prin faptă, au pus cuvintele și învață cuvinte, iar ei înșiși nu fac nimic, și de aceea n-aveți ce să învățați de la ei, în afară de cuvinte. Iar tatălui nu-i trebuie cuvinte, <!-- vol. 24, p. 897 --> ci fapte. Ei nici n-au ce să învețe, pentru că ei înșiși nu știu nimic, dar le trebuie, pentru folosul lor, să se dea drept învățători. Iar voi știți că nimeni nu poate fi învățătorul altora. Tuturor le este un singur învățător — stăpânitorul vieții, înțelegerea. Iar acești învățători de la sine puși, gândind să-i învețe pe alții, se lipsesc ei înșiși de viața adevărată și îi împiedică și pe alții s-o cunoască. Ei învață să-i fii plăcut Dumnezeului lor prin rituri exterioare și cred că prin jurământ pot aduce la credință. Ei sunt ocupați numai cu ceea ce e pe dinafară. Numai să semene cu credința, iar ce este în inimile oamenilor, la aceea nu se gândesc. Și de aceea ei sunt ca niște morminte împodobite: pe dinafară frumos, iar înăuntru urâciune. Ei cu vorba îi cinstesc pe sfinți și pe mucenici, dar ei sunt chiar oamenii aceia care și înainte ucideau și chinuiau și acum ucid și chinuie pe sfinți. De la ei vin toate ispitele din lume, pentru că ei, sub înfățișarea binelui, scot la vedere răul. Ispita lor este rădăcina tuturor ispitelor, pentru că și-au bătut joc de ceea ce este sfânt în lume. Încă multă vreme nu se vor întoarce, și își vor continua amăgirile, și vor spori răul în lume; dar va veni vremea, și se vor nărui toate templele, toată cinstirea exterioară a lui Dumnezeu, și oamenii vor înțelege și se vor uni prin iubire în slujirea singurului tată al vieții prin împlinirea voii lui.
+
+Mt. XIX, 13. Au adus odată la Isus niște copii, dar ucenicii au început să-i alunge pe copii.
+
+14. Isus a văzut că ucenicii îi gonesc pe copii, s-a întristat, și a spus: în zadar îi alungați pe copii. Ei sunt oamenii cei mai buni, pentru că toți copiii trăiesc în voia tatălui. Ei sunt de bună seamă deja în împărăția cerului.
+
+Luc. XVIII, 17. Voi nu trebuie să-i goniți, ci să învățați de la ei, pentru că, ca să trăiești în voia tatălui, trebuie să trăiești așa cum trăiesc copiii. Copiii împlinesc întotdeauna cele cinci porunci pe care vi le-am dat: copiii nu se ceartă, nu țin răul pe oameni, copiii nu desfrânează, copiii nu jură în nimic, copiii nu se împotrivesc răului, nu se judecă cu nimeni, copiii nu cunosc deosebirea dintre poporul lor și unul străin, și de aceea sunt mai buni decât cei mari și sunt în împărăția cerului.
+
+Mt. XVIII, 3. Dacă nu veți renunța la toate ispitele trupului și nu veți deveni la fel ca acești copii, nu veți fi în împărăția cerului.
+
+5. Numai acela care înțelege că copiii sunt mai buni decât noi, pentru că nu încalcă voia tatălui, numai acela înțelege învățătura mea.
+
+<!-- vol. 24, p. 898 --> Luc. IX, 48. Iar cine înțelege învățătura mea, numai acela înțelege voia tatălui.
+
+Mt. XVIII, 10. Noi nu putem să-i disprețuim pe copii, pentru că ei sunt mai buni decât noi și sufletele lor sunt curate înaintea tatălui și întotdeauna cu el.
+
+14. Și niciun copil nu piere după voia tatălui. Toți pier numai din pricina oamenilor, pentru că oamenii îi ademenesc de la adevăr.
+
+16. Și de aceea trebuie să-i păzim și să nu-i ademenim de la tatăl lor și de la viața adevărată. Și rău face acel om care îi ademenește de la curăția lor. A ademeni un copil de la bine, a-l ispiti cu mânia, cu desfrâul, cu jurământul, cu judecata, cu războiul este tot atât de rău ca a-i atârna unui asemenea copil o piatră de moară de gât și a-l arunca în apă. Greu să iasă la suprafață, mai degrabă se va îneca. Tot atât de greu îi este unui copil să iasă din ispita în care îl va duce un om mare.
+
+7. Lumea oamenilor este nefericită numai din cauza ispitelor. Ispitele sunt pretutindeni în lume, au fost și vor fi întotdeauna, și omul piere din cauza ispitelor.
+
+8. Și de aceea dă totul, jertfește totul, numai să nu cazi în ispită. Vulpea, dacă se prinde în capcană, își răsucește laba și scapă, și laba se vindecă, și ea rămâne vie. Așa să faci și tu. Dă totul, numai să nu te împotmolești în ispită.
+
+Luc. XVII, 3. Păziți-vă deci de ispita împotriva primei porunci: să nu ai rău pe oameni, — în aceea că oamenii ne jignesc și noi vrem să ne răzbunăm pe ei.
+
+Mt. XVIII, 15. Dacă te jignește un om, amintește-ți că el este fiul aceluiași tată și frate cu tine. Dacă te-a jignit, du-te și mustră-l între patru ochi. Dacă te va asculta, ai câștig: vei avea un frate nou.
+
+16. Dacă nu te va asculta, cheamă-i cu tine pe doi sau trei, ca să-l înduplece.
+
+Luc. XVII, 3 și 4. Și dacă se va căi, iartă-l. Și dacă de șapte ori te va jigni și de șapte ori îți va spune: iartă-mă, — iartă-l.
+
+Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred în învățătura mea. Dacă nici adunarea n-o va asculta, atunci iartă-l și nu mai avea de-a face cu el.
+
+23. Pentru că împărăția lui Dumnezeu iată cu ce se poate asemăna. A început un împărat să-și facă socotelile cu dijmașii săi.
+
+24. Și i-au adus un dijmaș care datora un milion de ruble.
+
+25. Și n-avea cu ce să plătească. Și ar fi trebuit ca împăratul să-i vândă pentru aceasta toată averea, soția, copiii și pe el însuși.
+
+<!-- vol. 24, p. 899 --> 26. Dar dijmașul a început să-i ceară împăratului milă.
+
+27. Și împăratul l-a miluit și i-a iertat toată datoria.
+
+28. Și iată, chiar acest dijmaș s-a dus acasă și a văzut un țăran. Țăranul acesta îi datora cincizeci de copeici. L-a înșfăcat dijmașul împărătesc, a început să-l sugrume și spune: dă-mi ce-mi datorezi.
+
+29. Și țăranul i-a căzut la picioare și spune: mai rabdă-mă, îți voi da totul.
+
+30. Dar dijmașul nu s-a îndurat, ci l-a închis pe țăran la răcoare, să stea până va da totul.
+
+31. Au văzut aceasta alți țărani și s-au dus la împărat și i-au spus ce a făcut dijmașul.
+
+32. Atunci împăratul l-a chemat pe dijmaș și îi spune: eu ție, câine rău, ți-am iertat toată dijma, pentru că m-ai rugat fierbinte.
+
+33. Și tu trebuia să-l miluiești pe datornicul tău, pentru că te-am miluit eu.
+
+34. Și s-a mâniat împăratul și l-a dat pe dijmaș la cazne, până va da toată dijma sa.
+
+35. Așa vă va face și tatăl vouă, dacă nu-i veți ierta din toată inima pe toți cei care sunt vinovați față de voi.
+
+Mt. V, 25. Doar tu știi că, dacă se iscă o ceartă cu un om, e mai bine să te împaci cu el înainte de a ajunge la judecată. Știi și faci așa pentru că știi — dacă ajungi la judecată, pierzi mai mult. Ei, același lucru e și cu orice ură. Dacă știi că ura e un lucru rău și te îndepărtează de tatăl, atunci dezleagă-te mai repede de ură și împacă-te.
+
+XVIII, 18. Doar știți singuri că, precum vă veți lega pe pământ, așa veți fi și înaintea tatălui. Iar precum vă veți dezlega pe pământ, veți fi dezlegați și înaintea tatălui.
+
+19. Înțelegeți că, dacă doi sau trei sunt uniți pe pământ prin învățătura mea, atunci tot ce doresc ei, toate acestea le au deja de la tatăl lor.
+
+20. Pentru că, unde doi sau trei sunt uniți în numele spiritului din om, acolo spiritul omului și trăiește în ei.
+
+Mt. XIX, 3; Marc. X, 2. Păziți-vă de ispita împotriva celei de-a doua porunci, în aceea că oamenii își schimbă soțiile.
+
+S-au apropiat odată de Isus învățătorii ortodocși și, ispitindu-l, au spus: poate omul să-și lase soția?
+
+Mt. XIX, 4. El le-a spus: chiar de la început omul a fost făcut mascul și femelă, aceasta este voia tatălui.
+
+<!-- vol. 24, p. 900 --> 5. Și de aceea omul își lasă tatăl și mama și se lipește de soția sa. Și se contopesc bărbatul și soția într-un singur trup. Așa încât soția este pentru om același lucru ca trupul lui.
+
+6. De aceea omul nu trebuie să încalce legea firească a lui Dumnezeu și să despartă ceea ce este unit.
+
+8. După legea voastră, a lui Moise, este spus că poți să-ți lași soția și să iei alta, dar aceasta nu este adevărat. După voia tatălui nu este așa.
+
+9. Și eu vă spun că cine își lasă soția o mână în desfrâu pe ea și pe acela care se va lega de ea. Și, lăsându-și soția, răspândește desfrâul în lume.
+
+10. Și i-au spus lui Isus ucenicii: e prea greu să rămâi pe veci cu o singură soție. Dacă așa trebuie, atunci mai bine să nu te însori deloc.
+
+11. El le-a spus: se poate și să nu te însori, dar trebuie numai să înțelegi ce înseamnă aceasta.
+
+12. Dacă cineva vrea să trăiască fără soție, acela să fie cu totul curat și să nu se atingă de femei. Sunt și asemenea oameni care nu se ating deloc de femei, iar cine iubește femeile, acela să se însoțească cu o singură soție, să n-o lase și să nu se uite după altele.
+
+Păziți-vă deci. Ispita împotriva celei de-a treia porunci stă în aceea că oamenii îi silesc pe alții să împlinească îndatoriri și să jure.
+
+Mt. XVII, 24. S-au apropiat odată strângătorii de biruri de Petru și l-au întrebat: ce, învățătorul vostru nu plătește biruri?
+
+25. Petru a spus: nu, nu plătește, și s-a dus și i-a povestit lui Isus că l-au oprit și i-au spus că toți sunt datori să plătească biruri.
+
+Atunci Isus i-a spus: împăratul doar nu ia biruri de la fiii săi, și, în afară de împărat, ei nu sunt datori să plătească nimănui. Așa este? Așa, iată, la fel și noi. Dacă suntem fiii lui Dumnezeu, atunci nu suntem datori cu nimic nimănui, în afară de Dumnezeu, și suntem liberi de orice îndatoriri.
+
+27. Iar dacă ți se cer biruri, dă, dar nu pentru că ești dator, ci pentru că nu te poți împotrivi răului. Altfel împotrivirea față de rău va produce un rău mai mare.
+
+XXII, 16. Altă dată ortodocșii s-au înțeles cu funcționarii împărătești și s-au dus la Isus ca să-l prindă în cuvinte. Ei i-au spus: iată, tu înveți toate după adevăr.
+
+17. Spune-ne, suntem datori să-i plătim biruri împăratului sau nu?
+
+18. Isus a înțeles că vor să-l osândească pentru că nu recunoaște îndatorirea față de împărat.
+
+<!-- vol. 24, p. 901 --> 19. El le-a spus: arătați-mi cu ce plătiți birurile împăratului. Ei i-au dat o monedă.
+
+20. El s-a uitat la monedă și spune: ce este aici, al cui chip și a cui inscripție?
+
+21. Ei spun: ale împăratului. Iar el spune: atunci dați-i împăratului ceea ce este al împăratului, iar ceea ce este al lui Dumnezeu, sufletul vostru, nu-l dați nimănui, decât lui Dumnezeu. Banii, averea, munca voastră, dați totul celui care v-o va cere, dar sufletul vostru nu-l dați nimănui, în afară de Dumnezeu.
+
+Mt. XXIII, 15. Iar învățătorii voștri ortodocși umblă peste tot și îi silesc pe oameni să jure și să făgăduiască că vor împlini legea. Dar prin aceasta numai îi strică pe oameni și îi fac mai răi decât fuseseră înainte.
+
+16, 22. Nu se poate face făgăduială cu trupul pentru sufletul tău. În sufletul vostru este Dumnezeu, și de aceea oamenii nu pot face făgăduieli înaintea oamenilor pentru Dumnezeu.
+
+Păziți-vă deci. Ispita împotriva celei de-a patra porunci stă în aceea că oamenii îi judecă și îi execută pe oameni și îi cheamă pe alții să ia parte la aceste judecăți și execuții.
+
+Luc. IX, 52. Au intrat odată ucenicii lui Isus într-un sat și au cerut să înnopteze.
+
+53. Nu i-au primit.
+
+54. Atunci ucenicii au venit la Isus să se plângă de aceasta și spun: să-i omoare trăsnetul pentru aceasta.
+
+55. Isus spune: tot nu înțelegeți din ce spirit sunteți.
+
+56. Eu nu învăț cum să-i pierzi pe oameni, ci cum să-i mântuiești.
+
+XII, 13. Odată a venit la Isus un om și spune: poruncește-i fratelui meu să-mi dea moștenirea.
+
+14. Isus i-a spus: nimeni nu m-a pus judecător peste voi, și eu nu judec pe nimeni.
+
+15. Și nici voi nu puteți judeca pe nimeni.
+
+Ioan VIII, 3. Au adus odată ortodocșii la Isus o femeie și spun:
+
+4. Iată, femeia aceasta a fost prinsă în desfrânare.
+
+5. Iar după lege trebuie ucisă cu pietre. Tu ce spui?
+
+6. Isus nu răspundea nimic și aștepta să-și vină în fire.
+
+7. Dar ei s-au ținut de el și îl întrebau ce va osândi pentru această femeie? Atunci el a spus: cine dintre voi este fără greșeală, acela să arunce cel dintâi cu piatra în ea.
+
+8. Și mai mult n-a spus nimic.
+
+<!-- vol. 24, p. 902 --> 9. Atunci ortodocșii s-au uitat la ei înșiși, și conștiința i-a mustrat, și au început cei din față să se ascundă după cei din spate, și toți au plecat. Și a rămas Isus singur cu femeia.
+
+10. El s-a uitat împrejur și vede — nu e nimeni. Ce, îi spune femeii, nu te-a învinuit nimeni?
+
+11. Ea spune: nimeni. El spune: nici eu nu te pot învinui. Du-te, și de-acum să nu mai greșești.
+
+Păziți-vă deci! Ispita împotriva celei de-a cincea porunci stă în aceea că oamenii se socotesc datori să facă bine numai celor din țara lor, iar popoarele străine le socotesc dușmane.
+
+Luc. X, 25. Un legist a vrut să-l ispitească pe Isus și a spus: ce să fac ca să primesc viața adevărată?
+
+27. Isus a spus: tu știi. Să-l iubești pe tatăl tău Dumnezeu și pe fratele tău după tatăl Dumnezeu, din orice țară ar fi, la fel.
+
+29. Și legistul a spus: ar fi bine, dacă n-ar fi popoare diferite, dar așa, cum să-i iubesc pe dușmanii poporului meu?
+
+30. Și Isus a spus: era un iudeu. El a dat de necaz: l-au bătut, l-au jefuit și l-au aruncat pe drum.
+
+31. Trecea un iudeu-preot, s-a uitat la cel bătut și a trecut mai departe.
+
+32. Trecea un iudeu-levit, s-a uitat la cel bătut și a trecut mai departe.
+
+33. A trecut un om dintr-un popor străin, dușman, un samaritean. Acest samaritean l-a văzut pe iudeu și nu s-a gândit că iudeii îi socotesc drept nimic pe samariteni, ci i s-a făcut milă de iudeul bătut.
+
+34. I-a spălat, i-a legat rănile, l-a dus pe măgarul său la un han.
+
+35. A plătit bani pentru el hangiului și a făgăduit că va mai trece să plătească pentru el.
+
+Așa, iată, așa să vă purtați cu popoarele străine, cu cei care vă socotesc drept nimic, care vă ruinează, și atunci veți primi viața adevărată.
+
+Mt. XVI, 21. Isus a spus: lumea îi iubește pe ai săi, iar pe cei ai lui Dumnezeu îi urăște, și de aceea oamenii lumii: preoții, știutorii de scripturi, căpeteniile îi vor chinui pe cei care vor împlini voia tatălui. Și iată, eu mă duc la Ierusalim și mă vor chinui și mă vor ucide, dar spiritul meu nu poate fi ucis, ci va fi viu.
+
+Marc. VIII, 32. Auzind că Isus va fi chinuit și ucis în Ierusalim, Petru s-a întristat, l-a luat pe Isus de mâini și i-a spus: dacă e așa, atunci mai bine nu te duce la Ierusalim.
+
+<!-- vol. 24, p. 903 --> 33. Atunci Isus i-a spus lui Petru: nu spune aceasta. Ceea ce spui tu este — ispită. Dacă tu te temi pentru mine de chinuri și de moarte, înseamnă că nu te gândești la cele dumnezeiești, la spirit, ci te gândești la cele omenești.
+
+34. Și, chemând poporul împreună cu ucenicii, Isus a spus: acela care vrea să trăiască după învățătura mea, acela să renunțe la viața sa trupească, acela să fie gata de toate suferințele trupești, pentru că cine se teme pentru viața sa trupească, acela va pierde viața adevărată, iar cine nesocotește viața trupească, acela o va salva pe cea adevărată.
+
+Mt. XXII, 23. Și ei nu înțelegeau aceasta. Și iată, s-au apropiat staroverii, și el le-a lămurit tuturor ce înseamnă viața adevărată și trezirea din moarte. Staroverii spuneau că după moartea trupească nu mai este nicio viață.
+
+24. Ei au spus: cum pot toți să învie din morți? Dacă ar învia toți, cei care vor învia n-ar putea nicicum să trăiască împreună.
+
+25. Iată, erau la noi șapte frați. Primul s-a însurat și a murit. Soția s-a măritat cu al doilea frate, și acela a murit, s-a măritat cu al treilea, și acela a murit, și așa până la al șaptelea.
+
+28. Ei, cum vor trăi acești șapte frați cu o singură soție, dacă vor învia toți?
+
+Luc. XX, 34. Isus le-a spus: voi ori încurcați înadins, ori nu înțelegeți în ce stă trezirea vieții. Oamenii în viața aceasta se însoară și se mărită.
+
+Iar cei care vor dobândi viața veșnică și trezirea din moarte nu se însoară și nu se mărită.
+
+36. Pentru că nici nu mai pot muri. Ei se unesc cu tatăl.
+
+Mt. XXII, 31. În scriptura voastră este spus că Dumnezeu a spus: eu sunt Dumnezeul lui Avraam, al lui Iacov. Și aceasta Dumnezeu a spus-o atunci când Avraam și Iacov muriseră deja pentru oameni. Prin urmare, cei care au murit pentru oameni sunt vii pentru Dumnezeu. Dacă există Dumnezeu și Dumnezeu nu moare, atunci cei care sunt cu Dumnezeu, aceia sunt întotdeauna vii. Trezirea din moarte este viața în voia tatălui. Pentru tatăl nu există timp, și de aceea, împlinind voia tatălui, unindu-se cu el, omul scapă de timp și de moarte.
+
+34. Auzind aceasta, ortodocșii nu mai știau ce să născocească ca să-l facă să tacă, și s-au unit cu staroverii și au început împreună să-l iscodească pe Isus.
+
+<!-- vol. 24, p. 904 --> 35. Și unul dintre ortodocși a spus:
+
+36. Învățătorule! Care este, după tine, porunca cea mai mare din toată legea? Ortodocșii credeau că Isus se va încurca în răspuns după lege.
+
+37. Dar Isus a spus: cea mai mare este — să-l iubești din tot sufletul pe domnul, pe acela în a cărui putere ne aflăm, iar a doua iese din ea:
+
+39. Să-l iubești pe aproapele tău, căci în el este același domn.
+
+40. În aceasta este tot ce e scris în toate cărțile voastre.
+
+42. Și Isus a mai spus: după voi, ce este Hristosul? Că el este fiul cuiva? Ei au spus: după ei Hristosul este — fiul lui David.
+
+43. Atunci el le-a spus: cum de David îl numește pe Hristos domnul său! Hristosul nu este fiul lui David și nici fiul nimănui, ci Hristosul — este același domn, stăpânitorul nostru, pe care îl cunoaștem în noi ca viața noastră. Hristosul — este acea înțelegere care este în noi.
+
+Luc. XII, 1. Și Isus a spus: băgați de seamă, păziți-vă de aluatul învățătorilor ortodocși. Păziți-vă și de aluatul staroverilor și de aluatul guvernului.
+
+5. Dar mai mult decât de orice păziți-vă de aluatul ortodocșilor de la sine puși, pentru că tocmai în ei este toată amăgirea.
+
+XX, 45. Și când a înțeles poporul despre ce vorbea el, el a spus:
+
+46. Mai mult decât de orice păziți-vă de învățătura cărturarilor — ortodocșii de la sine puși.
+
+47. Păziți-vă de ei pentru că ei au ocupat locul profetului care vestește poporului voia lui Dumnezeu. Ei și-au luat după bunul lor plac puterea de a propovădui poporului voia lui Dumnezeu. Ei propovăduiesc cuvinte, dar nu fac nimic.
+
+Mt. XXIII, 3. Și a ieșit că ei numai spun: faceți cutare și cutare lucru, dar n-ai ce face, pentru că ei nu fac nimic bun, ci numai vorbesc.
+
+4. Și spun chiar ceea ce nu se poate face. Și ei înșiși nu fac nimic.
+
+5. Ci numai se străduiesc să-și păstreze învățătoria și pentru aceasta încearcă să se pună în vedere: se gătesc, se fălesc.
+
+8. Și de aceea să știți că nimeni nu trebuie să se numească învățător-păstor.
+
+<!-- vol. 24, p. 905 --> 13. Iar ortodocșii de la sine puși se numesc învățători și prin aceasta vă împiedică să intrați în împărăția cerului și nici ei nu intră în ea.
+
+15. Acești ortodocși cred că se poate aduce la Dumnezeu prin rituri exterioare, prin jurăminte.
+
+16. Și, ca orbii, nu văd că ceea ce e exterior nu înseamnă nimic, că totul este în sufletul omului.
+
+23. Ei fac ceea ce e mai ușor, pe dinafară, iar ceea ce trebuie și e greu: iubirea, mila, dreptatea — lasă.
+
+28. Numai să fie pe dinafară în lege și pe alții să-i aducă pe dinafară la lege.
+
+27. Și de aceea ei sunt ca niște morminte vopsite, — pe dinafară par curate, iar înăuntru urâciune.
+
+30. Ei îi cinstesc pe dinafară și pe sfinții mucenici.
+
+31. Dar de fapt ei sunt chiar aceia care îi chinuie și îi ucid pe sfinți. Ei și înainte, și acum sunt dușmanii a tot ce e bun. De la ei vine tot răul din lume, pentru că ei ascund binele și în locul binelui scot la vedere răul. Și trebuie să te temi mai mult decât de orice de păstorii de la sine puși.
+
+Marc. III, 28. Pentru că știți și voi că orice greșeală se poate îndrepta.
+
+29. Dar dacă oamenii greșesc în privința a ceea ce este binele, atunci greșeala aceasta nu se mai poate îndrepta. Iar tocmai aceasta o fac păstorii de la sine puși.
+
+Mt. XXIII, 37. Și Isus a spus: am vrut aici, în Ierusalim, să-i unesc pe toți oamenii într-o singură înțelegere a binelui adevărat, dar oamenii de aici știu numai să-i execute pe învățătorii binelui.
+
+38. Și de aceea vor rămâne la fel de fără Dumnezeu cum au fost și nu-l vor cunoaște pe Dumnezeul adevărat până nu vor primi, iubind, înțelegerea lui Dumnezeu.
+
+XXIV, 1. Și Isus a plecat de la templu. Atunci ucenicii lui i-au spus: ei, dar cum rămâne cu acest templu al lui Dumnezeu, cu toate podoabele pe care oamenii le-au adus în el pentru Dumnezeu?
+
+2. Și Isus a spus: adevărat vă spun că tot acest templu, cu toate podoabele lui, se va nărui și nu va rămâne nimic din el.
+
+3. Este un singur templu al lui Dumnezeu — acesta este inima oamenilor, când se iubesc unii pe alții. Și l-au întrebat: când va fi un asemenea templu?
+
+<!-- vol. 24, p. 906 --> 4. Și Isus le-a spus: aceasta nu va fi curând. Multă vreme încă îi vor înșela pe oameni cu învățătura mea, și vor fi pentru aceasta războaie și răzvrătiri.
+
+12. Și va fi multă fărădelege, și va fi puțină iubire.
+
+14. Dar când învățătura adevărată se va răspândi în toți oamenii, atunci va fi sfârșitul răului și al ispitelor.
