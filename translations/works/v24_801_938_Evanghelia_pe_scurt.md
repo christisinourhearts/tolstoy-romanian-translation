@@ -2169,7 +2169,7 @@ Iar cei care n-au trăit prin fiul omului, aceia nu i-au slujit, n-au înțeles 
 
 Omul se naște cu cunoașterea vieții adevărate a împlinirii voii tatălui. Copiii trăiesc prin ea, la copii se vede în ce stă voia tatălui. Ca să înțelegi învățătura lui Isus, trebuie să înțelegi viața copiilor și să fii întocmai ca ei. Copiii trăiesc întotdeauna în voia tatălui, fără să încalce cele cinci porunci. Ei nici nu le-ar încălca vreodată, dacă cei mari nu i-ar duce în ispite. Ducându-i pe copii în ispita încălcării poruncilor, oamenii îi pierd pe copii. Ispitindu-i pe copii, oamenii fac cu ei același lucru pe care l-ar face un om care i-ar lega altuia o piatră de moară de gât și l-ar arunca în râu. Dacă n-ar fi ispite, lumea ar fi fericită. Lumea este nefericită numai din cauza ispitelor. Ispitele — sunt răul pe care îl fac oamenii pentru binele închipuit al vieții vremelnice. Ispitele îi pierd pe oameni, și de aceea trebuie să jertfești totul ca să nu cazi în ispită. Ispita împotriva primei porunci constă în aceea că oamenii se socotesc curați înaintea oamenilor, iar pe alții datori față de ei. Ca să nu cadă în această ispită, oamenii trebuie să-și amintească faptul că toți oamenii sunt întotdeauna nesfârșit de datori față de tatăl și că se pot curăța de această datorie numai iertându-și frații. Și de aceea oamenii trebuie să le ierte oamenilor jignirile, fără să se tulbure de faptul că cel care jignește va jigni iar și iar.
 
-Ori de câte ori ar fi jignit omul, el trebuie să ierte și să ierte, fără să țină minte răul, pentru că împărăția cerului este cu putință numai prin iertare. Dacă nu iertăm, facem același lucru pe care l-a făcut datornicul. Un datornic cu o datorie mare a venit la stăpân și a început să ceară milă. Stăpânul i-a iertat totul. Datornicul s-a dus și a început să-l sugrume pe datornicul său, pe acela care îi datora puțin. Doar noi, ca să avem viață, trebuie să împlinim voia tatălui; iar de la tatăl cerem iertare pentru că nu i-am împlinit întru totul voia și nădăjduim să primim această iertare. Atunci ce facem dacă nu iertăm? Facem ceea ce ne temem pentru noi. Voia tatălui — este binele, iar răul — este ceea ce <!-- vol. 24, p. 895 --> ne desparte de tatăl, atunci cum să nu ne străduim să stingem răul cât mai repede, pentru că răul ne pierde și ne lipsește de viață. Răul ne leagă în pieirea trupească. Cât vom dezlega din acest rău, atâta dobândim viață. Dacă răul nu ne desparte și suntem uniți prin iubire, atunci avem tot ce putem dori.
+Ori de câte ori ar fi jignit omul, el trebuie să ierte și să ierte, fără să țină minte răul, pentru că împărăția cerului este cu putință numai prin iertare. Dacă nu iertăm, facem același lucru pe care l-a făcut datornicul. Un datornic cu o datorie mare a venit la stăpân și a început să ceară milă. Stăpânul i-a iertat totul. Datornicul s-a dus și a început să-l sugrume pe datornicul său, pe acela care îi datora puțin. Doar noi, ca să avem viață, trebuie să împlinim voia tatălui; iar de la tatăl cerem iertare pentru că nu i-am împlinit întru totul voia și nădăjduim să primim această iertare. Atunci ce facem dacă nu iertăm? Facem lucrul de care ne temem pentru noi. Voia tatălui — este binele, iar răul — este ceea ce <!-- vol. 24, p. 895 --> ne desparte de tatăl, atunci cum să nu ne străduim să stingem răul cât mai repede, pentru că răul ne pierde și ne lipsește de viață. Răul ne leagă în pieirea trupească. Cât vom dezlega din acest rău, atâta dobândim viață. Dacă răul nu ne desparte și suntem uniți prin iubire, atunci avem tot ce putem dori.
 
 Ispita împotriva celei de-a doua porunci stă în aceea că noi credem că femeia este făcută pentru desfătarea trupească și că, lăsând o femeie și luând alta, primim mai multă desfătare. Ca să nu cazi în această ispită, trebuie să-ți amintești că voia tatălui nu este ca omul să se desfete cu farmecul femeiesc, ci ca fiecare, alegându-și o soție, să se unească cu ea într-un singur trup. Voia tatălui este ca fiecare bărbat să aibă o soție, iar fiecare soție să aibă un bărbat. Dacă un bărbat se va ține de o singură soție, atunci toți vor avea soții și toate vor avea bărbați. Iar de aceea cine își schimbă soția o lipsește pe soție de bărbat și îl face pe alt bărbat să o lase pe a sa și s-o ia pe cea lăsată. Se poate să nu ai soție, dar să ai mai mult de o soție nu se poate, pentru că, având altă soție, încalci voia tatălui, care constă în unirea unui singur bărbat cu o singură soție.
 
@@ -2189,9 +2189,9 @@ Mt. XIX, 13. Au adus odată la Isus niște copii, dar ucenicii au început să-i
 
 14. Isus a văzut că ucenicii îi gonesc pe copii, s-a întristat, și a spus: în zadar îi alungați pe copii. Ei sunt oamenii cei mai buni, pentru că toți copiii trăiesc în voia tatălui. Ei sunt de bună seamă deja în împărăția cerului.
 
-Luc. XVIII, 17. Voi nu trebuie să-i goniți, ci să învățați de la ei, pentru că, ca să trăiești în voia tatălui, trebuie să trăiești așa cum trăiesc copiii. Copiii împlinesc întotdeauna cele cinci porunci pe care vi le-am dat: copiii nu se ceartă, nu țin răul pe oameni, copiii nu desfrânează, copiii nu jură în nimic, copiii nu se împotrivesc răului, nu se judecă cu nimeni, copiii nu cunosc deosebirea dintre poporul lor și unul străin, și de aceea sunt mai buni decât cei mari și sunt în împărăția cerului.
+Luc. XVIII, 17. Voi nu trebuie să-i goniți, ci să învățați de la ei, pentru că, ca să trăiești în voia tatălui, trebuie să trăiești așa cum trăiesc copiii. Copiii împlinesc întotdeauna cele cinci porunci pe care vi le-am dat: copiii nu se ceartă, nu poartă rău oamenilor, copiii nu desfrânează, copiii nu jură în nimic, copiii nu se împotrivesc răului, nu se judecă cu nimeni, copiii nu cunosc deosebirea dintre poporul lor și unul străin, și de aceea sunt mai buni decât cei mari și sunt în împărăția cerului.
 
-Mt. XVIII, 3. Dacă nu veți renunța la toate ispitele trupului și nu veți deveni la fel ca acești copii, nu veți fi în împărăția cerului.
+Mt. XVIII, 3. Dacă nu veți renunța la toate ispitele trupului și nu veți deveni la fel ca copiii, nu veți fi în împărăția cerului.
 
 5. Numai acela care înțelege că copiii sunt mai buni decât noi, pentru că nu încalcă voia tatălui, numai acela înțelege învățătura mea.
 
@@ -2207,7 +2207,7 @@ Mt. XVIII, 10. Noi nu putem să-i disprețuim pe copii, pentru că ei sunt mai b
 
 8. Și de aceea dă totul, jertfește totul, numai să nu cazi în ispită. Vulpea, dacă se prinde în capcană, își răsucește laba și scapă, și laba se vindecă, și ea rămâne vie. Așa să faci și tu. Dă totul, numai să nu te împotmolești în ispită.
 
-Luc. XVII, 3. Păziți-vă deci de ispita împotriva primei porunci: să nu ai rău pe oameni, în aceea că oamenii ne jignesc și noi vrem să ne răzbunăm pe ei.
+Luc. XVII, 3. Păziți-vă deci de ispita împotriva primei porunci: să nu porți rău oamenilor, în aceea că oamenii ne jignesc și noi vrem să ne răzbunăm pe ei.
 
 Mt. XVIII, 15. Dacă te jignește un om, amintește-ți că el este fiul aceluiași tată și frate cu tine. Dacă te-a jignit, du-te și mustră-l între patru ochi. Dacă te va asculta, ai câștig: vei avea un frate nou.
 
@@ -2215,7 +2215,7 @@ Mt. XVIII, 15. Dacă te jignește un om, amintește-ți că el este fiul aceluia
 
 Luc. XVII, 3 și 4. Și dacă se va căi, iartă-l. Și dacă de șapte ori te va jigni și de șapte ori îți va spune: iartă-mă, — iartă-l.
 
-Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred în învățătura mea. Dacă nici adunarea n-o va asculta, atunci iartă-l și nu mai avea de-a face cu el.
+Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred în învățătura mea. Dacă nu va asculta nici de adunare, atunci iartă-l și nu mai avea de-a face cu el.
 
 23. Pentru că împărăția lui Dumnezeu iată cu ce se poate asemăna. A început un împărat să-și facă socotelile cu dijmașii săi.
 
@@ -2243,7 +2243,7 @@ Mt. XVIII, 17. Iar dacă nu te va asculta, spune-o adunării oamenilor care cred
 
 35. Așa vă va face și tatăl vouă, dacă nu-i veți ierta din toată inima pe toți cei care sunt vinovați față de voi.
 
-Mt. V, 25. Doar tu știi că, dacă se iscă o ceartă cu un om, e mai bine să te împaci cu el înainte de a ajunge la judecată. Știi și faci așa pentru că știi — dacă ajungi la judecată, pierzi mai mult. Ei, același lucru e și cu orice ură. Dacă știi că ura e un lucru rău și te îndepărtează de tatăl, atunci dezleagă-te mai repede de ură și împacă-te.
+Mt. V, 25. Doar tu știi că, dacă se iscă o ceartă cu un om, e mai bine să te împaci cu el înainte de a ajunge la judecată. Știi și faci așa pentru că știi — dacă ajungi la judecată, pierzi mai mult. Ei, același lucru e și cu orice răutate. Dacă știi că răutatea e un lucru rău și te îndepărtează de tatăl, atunci dezleagă-te mai repede de răutate și împacă-te.
 
 XVIII, 18. Doar știți singuri că, precum vă veți lega pe pământ, așa veți fi și înaintea tatălui. Iar precum vă veți dezlega pe pământ, veți fi dezlegați și înaintea tatălui.
 
@@ -2253,7 +2253,7 @@ XVIII, 18. Doar știți singuri că, precum vă veți lega pe pământ, așa ve�
 
 Mt. XIX, 3; Marc. X, 2. Păziți-vă de ispita împotriva celei de-a doua porunci, în aceea că oamenii își schimbă soțiile.
 
-S-au apropiat odată de Isus învățătorii ortodocși și, ispitindu-l, au spus: poate omul să-și lase soția?
+S-au apropiat odată de Isus învățătorii ortodocși și, iscodindu-l, au spus: poate omul să-și lase soția?
 
 Mt. XIX, 4. El le-a spus: chiar de la început omul a fost făcut mascul și femelă, aceasta este voia tatălui.
 
@@ -2281,7 +2281,7 @@ Atunci Isus i-a spus: împăratul doar nu ia biruri de la fiii săi, și, în af
 
 27. Iar dacă ți se cer biruri, dă, dar nu pentru că ești dator, ci pentru că nu te poți împotrivi răului. Altfel împotrivirea față de rău va produce un rău mai mare.
 
-XXII, 16. Altă dată ortodocșii s-au înțeles cu funcționarii împărătești și s-au dus la Isus ca să-l prindă în cuvinte. Ei i-au spus: iată, tu înveți toate după adevăr.
+XXII, 16. Altă dată ortodocșii s-au întovărășit cu funcționarii împărătești și s-au dus la Isus ca să-l prindă în cuvinte. Ei i-au spus: iată, tu înveți toate după adevăr.
 
 17. Spune-ne, suntem datori să-i plătim biruri împăratului sau nu?
 
@@ -2323,7 +2323,7 @@ Ioan VIII, 3. Au adus odată ortodocșii la Isus o femeie și spun:
 
 6. Isus nu răspundea nimic și aștepta să-și vină în fire.
 
-7. Dar ei s-au ținut de el și îl întrebau ce va osândi pentru această femeie? Atunci el a spus: cine dintre voi este fără greșeală, acela să arunce cel dintâi cu piatra în ea.
+7. Dar ei s-au ținut de el și îl întrebau ce osândă îi va da acestei femei? Atunci el a spus: cine dintre voi este fără greșeală, acela să arunce cel dintâi cu piatra în ea.
 
 8. Și mai mult n-a spus nimic.
 
@@ -2373,7 +2373,7 @@ Mt. XXII, 23. Și ei nu înțelegeau aceasta. Și iată, s-au apropiat staroveri
 
 Luc. XX, 34. Isus le-a spus: voi ori încurcați înadins, ori nu înțelegeți în ce stă trezirea vieții. Oamenii în viața aceasta se însoară și se mărită.
 
-Iar cei care vor dobândi viața veșnică și trezirea din moarte nu se însoară și nu se mărită.
+Iar cei care vor merita viața veșnică și trezirea din moarte nu se însoară și nu se mărită.
 
 36. Pentru că nici nu mai pot muri. Ei se unesc cu tatăl.
 
