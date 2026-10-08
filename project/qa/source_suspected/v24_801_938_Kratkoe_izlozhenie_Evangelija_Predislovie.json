@@ -12,10 +12,11 @@
     "p. 831 (line 566): «нашить па старую» — па for на.",
     "p. 843 (line 838): «ранам, увечьям смерти» — probably a missing comma (увечьям, смерти); read with the comma.",
     "p. 847-848 (line 978): «тои самои» — и for й (той самой).",
-    "p. 856 (line 1202): «не будет никогда знать вражды» — possibly misreading of «жажды» (thirst, cf. Jn 6:35); translated as written («dușmănia»). Check print witness.",
+    "p. 856 (line 1202): «не будет никогда знать вражды» — possibly misreading of «жажды» (thirst, cf. Jn 6:35); translated as written («dușmănia»). Check print witness. Cold audit 2026-10-08 (R002_COLD_AUDIT.md): the TEI archive file tolstoydigital/TEI texts/works/v24_801_938_Kratkoe_izlozhenie_Evangelija_Predislovie.xml (SHA-256 b9d47b57e65fa064b5551858c0b9a52a921d56947831fe21c70b639632a29062) also reads «вражды» before <pb n=\"856\"/>, so the Markdown layer matches its archive; the printed vol. 24 could not be consulted (tolstoy.ru, rusneb.ru, archive.org, ru.wikisource.org, tolstoy-lit.ru blocked by the audit environment's network policy). Print reading still unverified.",
     "p. 859-860 (line 1308): «уничтожить Если» — missing full stop; read with it.",
     "p. 864 (line 1372): «подошел к. Иисусу» — stray full stop.",
     "p. 864 (line 1380): «Иисусу:пойду» — missing space.",
+    "p. 870 (line 1584): reference «Лук. XII, 41» for the widow's mite, which is Mk 12:41 (Lk 21:1); kept as printed (D0007). Found in the cold audit.",
     "p. 871 (line 1568): «до него, А Закхей» — comma for full stop.",
     "p. 872 (line 1610): «кто говорит. я в воле отца» — full stop for colon.",
     "p. 872 (line 1642): «Для этой жизни нет. смерти» — stray full stop; read past.",
@@ -37,5 +38,5 @@
     "p. 934 (line 3134): «ели, ели, лама сабах» — truncated transliteration (cf. «лама савахфани»); kept as in source."
   ],
   "disposition": "Retain the audited Russian source and SHA-256 unchanged. Obvious typing slips (stray or missing punctuation, missing spaces, single wrong letters) are read past in the Romanian, as in R001.01; Gospel references are kept exactly as printed even where they are wrong; Tolstoy's French quotation is kept in French. One reading (p. 856, «вражды», possibly for «жажды») could affect meaning and is translated as written pending the print witness. None of these holds the unit out of reviewed status.",
-  "witness_pending": "https://tolstoy.ru/online/90/24/"
+  "witness_pending": "https://tolstoy.ru/online/90/24/ (vol. 24, p. 856, Jn 6:35 «вражды»/«жажды»; not reachable from the cold-audit environment)"
 }

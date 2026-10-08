@@ -40,3 +40,8 @@ Se înregistrează termenii rusești recurenți numai când decizia are consecin
 | работник (în pilde) | argat | lucrător (tocmit cu ziua, Mt 20; în livadă, Mc 12) | |
 | оброк; оброчник | dijmă; dijmaș | | |
 | гривна; копейка; полушка; рубль | grivnă; copeică; sfert de copeică; rublă | | Realiile monetare ale lui Tolstoi se păstrează. |
+| масло; мѵро / миро | untdelemn; mir | | *Evanghelia pe scurt*: Tolstoi scrie «масло» pentru ungerea din Betania (Mt 26:7–12; In 12:3–5; cuprinsurile cap. VI și X) și numai o dată «мѵро» (cap. X, cuprins); «mir» numai pentru «мѵро», altfel ar fi forma sinodală/Cornilescu (D0007). Audit R002.01. |
+| злоба | răutate | | «ură» rămâne pentru ненависть (*Evanghelia pe scurt*, cap. IV, IX). |
+| возвысить; возвеличить (сына человеческого) | a înălța; a preamări | | Două verbe deosebite la Tolstoi (In 3:14, 8:28, 12:32–36). |
+| выпытывать | a iscodi | | Nu «a ispiti»: rădăcina *ispit-* e rezervată pentru соблазн / искушение. |
+| сойтись (с женой) | a se însoți | | Nu «a se împreuna» (*Evanghelia pe scurt*, cap. IV; cf. Mt 19:12 «сойдись» = «să se însoțească»). |

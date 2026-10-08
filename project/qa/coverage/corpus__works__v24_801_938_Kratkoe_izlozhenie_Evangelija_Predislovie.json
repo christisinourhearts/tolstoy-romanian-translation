@@ -23,7 +23,17 @@
     "Coarse wording kept at the source register: «из задницы с калом» (Mk 7:19), «выблядки» (Jn 8:41 = «copii de curvă»).",
     "Source issues: thirty-two recorded findings, mostly non-substantive slips (stray full stops, missing spaces, wrong letters), misprinted references (e.g. «Марк. XIX, 18», «Мф. XXVI, 20» for Mt 27) kept as printed, the French quotation with «n’avaitrien», «Christi», «chritien», and one possible misreading («вражды» for «жажды», Jn 6:35) recorded in project/qa/source_suspected/.",
     "Typography: comma-below ș/ț throughout (scan: no cedilla forms); no Cyrillic left in the body; Romanian „…” quotes; em-dash dialogue as in the source.",
-    "Process note: translated, audited, revised and edited by the same model in one working context; not an independent or human verification."
+    "Process note: translated, audited, revised and edited by the same model in one working context; not an independent or human verification.",
+    "Independent cold audit (2026-10-08, branch gospel-in-brief-cold-audit, report project/qa/reports/R002_COLD_AUDIT.md): full text re-read paragraph by paragraph from the Russian in a fresh context by a reviewer who had not made the translation. 59 findings fixed (78 edits on 69 lines): 1 omission (concessive «и», Lk 4:4), 3 unsupported additions, 15 reversed or shifted meanings (incl. «пока» read as «până să» twice in Mt 25:5, 10; «как бы … не отрекся» made a command, Jn 13:38; a question made a statement, Jn 9:19; «добро» = goods read as «bunătate»), 6 terminology slips, 2 Bible-version slippages («масло» rendered «mir» 14 times; Cornilescu «a se blestema» for «божиться», Mt 26:74), 4 smoothings, 28 Romanian-language errors. 0 reference errors. The reading «вражды» was checked against the TEI archive (same) but not against the printed volume (scan hosts blocked). Verdict: PASS AFTER REVISION.",
+    "Process note (cold audit): the cold audit is an independent model context, not a human verification; a reading by a native Romanian speaker who reads Russian is still recommended."
   ],
-  "result": "PASS"
+  "result": "PASS",
+  "independent_audit": {
+    "report": "project/qa/reports/R002_COLD_AUDIT.md",
+    "date": "2026-10-08",
+    "scope": "full_text",
+    "findings_fixed": 59,
+    "verdict": "PASS_AFTER_REVISION",
+    "print_witness_checked": false
+  }
 }
