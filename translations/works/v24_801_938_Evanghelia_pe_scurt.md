@@ -588,3 +588,157 @@ Mt. IV, 14, 16. Și asupra lui Isus s-a împlinit proorocia lui Isaia: poporul e
 25. Și mult popor mergea după el.
 
 Mt. VIII, 1. Și el umbla prin orașe și prin sate, vestind binele adevărat.
+
+## Capitolul III PRINCIPIUL ÎNȚELEGERII
+
+### DIN SPIRITUL TATĂLUI A PROVENIT VIAȚA TUTUROR OAMENILOR. (SFINȚEASCĂ-SE NUMELE TĂU.)
+
+#### CUPRINSUL CAPITOLULUI III
+
+Ucenicii lui Isus îl întreabă pe Isus în ce constă acea împărăție a lui Dumnezeu pe care o propovăduiește el. Isus răspunde: împărăția lui Dumnezeu pe care o propovăduiesc eu este aceeași pe care <!-- vol. 24, p. 832 --> o propovăduia Ioan. Ea constă în aceea că toți oamenii, în ciuda oricăror nenorociri trupești, pot fi fericiți.
+
+Și Isus spune poporului: Ioan, cel dintâi, a propovăduit poporului împărăția lui Dumnezeu nu în lumea exterioară, ci în sufletul oamenilor: ortodocșii s-au dus să-l asculte, dar n-au înțeles nimic, pentru că ei înțeleg numai ceea ce născocesc ei înșiși despre un Dumnezeu exterior și își propovăduiesc născocirile și se miră că nimeni nu-i ascultă. Iar Ioan propovăduia adevărul împărăției lui Dumnezeu înăuntrul oamenilor și de aceea a făcut mai mult decât toți. El a făcut ca de pe vremea lui să nu mai fie necesare legea și profeții și toată cinstirea exterioară a lui Dumnezeu. De pe vremea învățăturii lui s-a descoperit că împărăția lui Dumnezeu este în sufletul oamenilor și că fiecare om, după puterea sa, poate fi în împărăție, în voia lui Dumnezeu tatăl.
+
+La întrebarea când va veni împărăția lui Dumnezeu, Isus spune că împărăția lui Dumnezeu este nevăzută și nu se află în ceea ce este exterior, ci este în sufletele oamenilor. Începutul și sfârșitul a toate — sunt în sufletul omului.
+
+Și lămurind sensul împărăției lui Dumnezeu, Isus spune: Fiecare om, pe lângă viața sa trupească, pe lângă zămislirea, înțeleasă de el, de la un tată trupesc în pântecele unei mame trupești, are conștiința unui spirit liber, rațional și neatârnat de trup. Tocmai acest spirit, nesfârșit și ieșit din nesfârșit, este principiul a toate și ceea ce numim noi Dumnezeu. Îl cunoaștem numai în noi. Acest spirit este principiul vieții noastre, și el trebuie pus mai presus de toate, prin el trebuie să trăim. Făcând din acest spirit temelia vieții, primim viața adevărată, nesfârșită. Tatăl spirit care a trimis acest spirit în oameni nu putea să-l trimită ca să-i înșele pe oameni, ca oamenii, având conștiința vieții nesfârșite în ei, s-o piardă. Dacă există în om acest spirit nesfârșit, atunci el trebuie să dea viață nesfârșită. Și de aceea omul care își pune viața în acest spirit are viață nesfârșită. Omul care nu-și pune viața în acest spirit nu are viață. Oamenii își pot alege singuri viața și moartea. Viața este în spirit, moartea în trup. Viața spiritului este binele, lumina; viața trupului — răul, întunericul. A crede în spirit — înseamnă a săvârși faptele binelui; a nu crede — înseamnă a săvârși faptele răului. Binele este viața, răul este moartea. Pe Dumnezeu, creatorul exterior, principiul tuturor principiilor, nu-l cunoaștem. Tot ce ne putem închipui despre el este că el a semănat în oameni spiritul, și a semănat cum seamănă semănătorul, peste tot, fără să aleagă pământul, și sămânța care a căzut în pământ bun crește, iar în cel nepotrivit — piere. Numai spiritul dă viață oamenilor, <!-- vol. 24, p. 833 --> și de la oameni depinde s-o păstreze sau s-o piardă. Răul nu există pentru spirit. Răul — este o închipuire de viață. Există numai ce e viu și ce nu e viu. Răul — nu e viu. Aceasta este reprezentarea despre toată lumea oamenilor; dar pentru fiecare om există conștiința împărăției cerului în suflet. Fiecare poate, după bunul său plac, să intre sau să nu intre în ea. Ca să intri în ea, trebuie să crezi în viața spiritului. Cel ce crede în viața spiritului are viață nesfârșită.
+
+Mat. XI, 2, 3. După aceasta au venit ucenicii lui Ioan să-l întrebe pe Isus: este el acela despre care vorbește Ioan; deschide el împărăția lui Dumnezeu și îi înnoiește el pe oameni prin spirit?
+
+4. Isus răspunde și spune: priviți, ascultați și povestiți-i lui Ioan dacă a venit împărăția lui Dumnezeu și dacă se înnoiesc oamenii prin spirit. Povestiți-i cum propovăduiesc eu împărăția lui Dumnezeu.
+
+5. În proorocii este spus că, atunci când va veni împărăția lui Dumnezeu, toți oamenii vor fi fericiți. Ei bine, spuneți-i că împărăția mea a lui Dumnezeu este așa, încât săracii sunt fericiți.
+
+6. Și că oricine mă înțelege devine fericit.
+
+7. Și, după ce i-a lăsat să plece pe ucenicii lui Ioan, Isus a început să vorbească poporului despre ce fel de împărăție a lui Dumnezeu vestea Ioan. El a spus: când vă duceați la Ioan în pustie să vă botezați, ce vă duceați să vedeți? Legiștii ortodocși se duceau și ei, dar nu înțelegeau ceea ce vestea Ioan. Și l-au socotit drept nimic.
+
+16. Soiul acesta, legiștii ortodocși, socotesc adevăr numai ceea ce născocesc ei înșiși și aud unii de la alții, și legea aceea pe care au născocit-o ei înșiși.
+
+18. Iar ce spunea Ioan, ce spun eu, ei nu aud și nu înțeleg. Din ce spunea Ioan, ei au înțeles numai că postea în pustie, și spun: are demon în el.
+
+19. Din ce spun eu, au înțeles numai că nu postesc, și spun: mănâncă și bea cu strângătorii de dări și cu desfrânații, le e prieten.
+
+17. Ei, ca niște copii pe uliță, flecăresc unul cu altul și se miră că nimeni nu-i ascultă.
+
+19. Și se vede înțelepciunea lor după faptele lor.
+
+8. Dacă ați vrea să vedeți un om îmbrăcat în haine bogate, păi aceștia sunt aici, în palate trăiesc.
+
+9. Atunci ce n-ați văzut în pustie? Credeți că v-ați dus pentru că Ioan era un profet ca și alții? <!-- vol. 24, p. 834 --> Să nu credeți aceasta. Ioan nu era un profet ca alții; el era mai mare decât toți profeții. Aceia prevesteau ceea ce poate fi. El le-a vestit oamenilor ceea ce este: că împărăția lui Dumnezeu a fost și este pe pământ.
+
+11. Adevărat vă spun: nu s-a născut om mai mare decât Ioan. El a vestit împărăția lui Dumnezeu pe pământ și de aceea este mai presus de toți.
+
+Luc. XVI, 16. Legea și profeții — toate acestea erau necesare până la Ioan. Iar de la Ioan și până azi se vestește că împărăția lui Dumnezeu este pe pământ și că cine face un efort, acela și intră în ea.
+
+Luc. XVII, 20. Și au venit la Isus ortodocșii și au început să-l întrebe cum și când va veni împărăția lui Dumnezeu? Și el le-a răspuns: împărăția lui Dumnezeu, pe care o propovăduiesc eu, nu este așa cum o propovăduiau profeții de mai înainte. Ei spuneau că va veni Dumnezeu cu felurite arătări văzute, iar eu vorbesc despre o asemenea împărăție a lui Dumnezeu a cărei venire nu se poate vedea cu ochii.
+
+23. Și dacă vă vor spune: iată, a venit sau va veni, sau iată, este aici, voi să nu-i credeți. Împărăția lui Dumnezeu nu este în timp sau în vreun loc.
+
+24. Ea este ca fulgerul, — și aici, și acolo, și pretutindeni.
+
+21. Și nu are nici timp, nici loc, pentru că împărăția lui Dumnezeu, aceea pe care o propovăduiesc eu, — este înăuntrul vostru.
+
+Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodim, a venit la Isus noaptea și spune: tu nu poruncești să se țină sâmbetele, nu poruncești să se păstreze curățenia, nu poruncești să se aducă jertfe, să se postească; templul l-ai nimicit, despre Dumnezeu spui că el este — spirit, și despre împărăția lui Dumnezeu spui că este înăuntrul nostru. Ce fel de împărăție a lui Dumnezeu este aceasta?
+
+3. Și Isus i-a răspuns: înțelege tu, dacă omul este zămislit din cer, atunci în el trebuie să fie ceva ceresc.
+
+4. Nicodim n-a înțeles aceasta și a spus: cum poate omul, dacă este zămislit din trupul tatălui și a îmbătrânit, să intre iar în pântecele mamei și să fie zămislit de la început?
+
+5. Și Isus i-a răspuns: înțelege tu ce spun. Eu spun că omul, pe lângă trup, este zămislit și din spirit, și de aceea orice om este zămislit din trup și din spirit, și de aceea în el poate fi împărăția cerului.
+
+6. Din trup — trup. Din trup nu se poate naște spirit: numai din spirit poate fi spirit.
+
+<!-- vol. 24, p. 835 --> 8. Spiritul — este ceea ce trăiește în tine, și trăiește liber și rațional, și ceea ce nu-i cunoști nici începutul, nici sfârșitul, și aceasta o simte în sine orice om.
+
+7. Și de aceea, de ce te-ai mirat că ți-am spus că trebuie să fim zămisliți din cer?
+
+9. Nicodim a spus: totuși nu cred că aceasta ar putea fi așa.
+
+10. Atunci Isus i-a spus: ce fel de învățător ești tu, dacă nu înțelegi aceasta!
+
+11. Înțelege tu că nu tâlcuiesc eu vreo înțelepciune deosebită; eu tâlcuiesc ceea ce știm cu toții, te încredințez de ceea ce vedem cu toții.
+
+12. Cum vei crede tu în ceea ce este în cer, dacă nu crezi în ceea ce este pe pământ, ceea ce este în tine însuți.
+
+13. În cer doar nimeni n-a fost, ci există numai pe pământ omul, coborât din cer și el însuși ceresc.
+
+14. Tocmai pe acest fiu ceresc din om trebuie să-l înălțăm, ca oricine să creadă în el și să nu piară, ci să aibă viață cerească.
+
+16. Doar nu spre pieirea oamenilor, ci spre binele oamenilor le-a dat Dumnezeu oamenilor pe fiul său, întocmai ca el. Doar l-a dat pentru ca oricine să creadă în el și să nu piară, ci să aibă viață nesfârșită.
+
+17. Doar nu pentru aceasta l-a produs pe fiul său, — viața, în lumea oamenilor, ca să nimicească lumea oamenilor, ci l-a produs pe fiul său — viața, pentru ca lumea oamenilor să fie vie prin el.
+
+18. Cine își pune viața în el, acela nu moare, iar cine nu-și pune viața în el, acela se nimicește singur prin aceea că nu s-a încrezut în ceea ce este viață.
+
+19. Despărțirea (moartea) tocmai în aceasta constă, că viața a venit în lume, dar oamenii singuri pleacă de la viață. Viața este lumina oamenilor. Lumina a venit în lume, dar oamenii au preferat întunericul în locul luminii și nu merg la lumină.
+
+20. Și de aceea, cine face rău, acela nu merge la lumină; așa încât nu se văd faptele lui, și acela se lipsește de viață.
+
+21. Iar cine trăiește în adevăr, acela merge la lumină, așa încât faptele lui sunt în lumină, și acela are viață și se unește cu Dumnezeu.
+
+Împărăția lui Dumnezeu trebuie înțeleasă nu așa cum credeți voi, că pentru toți oamenii, într-o vreme oarecare și într-un loc oarecare, va veni împărăția lui Dumnezeu, ci așa, că în toată lumea, întotdeauna, unii oameni, aceia care se încred în fiul ceresc al omului, <!-- vol. 24, p. 836 --> se fac fii ai împărăției, iar alții, care nu se încred în el, se nimicesc. Tatăl acelui spirit care este în om este tatăl numai al celor care se recunosc fiii lui. Și de aceea pentru el există numai aceia care au păstrat în ei ceea ce le-a dat el.
+
+Mat. XIII, 3. Și după aceasta a început Isus să tâlcuiască poporului ce este împărăția lui Dumnezeu, și o tâlcuia în pilde. El a spus: tatăl spirit seamănă în lume viața înțelegerii, întocmai cum un gospodar seamănă semințe pe ogorul său.
+
+4. El seamănă pe tot ogorul, fără să aleagă care unde va cădea. Și iată, cad unele boabe pe drum, și vin păsările și le ciugulesc.
+
+5. Iar altele pe pietre, și pe pietre, deși răsar, se veștejesc, pentru că n-au unde să prindă rădăcină.
+
+7. Iar altele cad în pelin, și pelinul înăbușă grâul, și răsare spicul, dar nu se umple.
+
+8. Iar altele cad în pământ bun, acelea răsar și recuperează pentru boabele pierdute, și dau în spic și se umplu; și un spic dă însutit, altul de șaizeci de ori, altul de treizeci de ori.
+
+Tot așa și Dumnezeu a semănat spiritul în oameni, în unii el se pierde, iar în alții rodește însutit. Tocmai acești oameni alcătuiesc împărăția lui Dumnezeu.
+
+Marc. IV, 26. Așa că împărăția lui Dumnezeu nu este cum credeți voi, că va veni Dumnezeu să domnească peste voi. Dumnezeu numai a semănat spiritul, și împărăția lui Dumnezeu va fi în aceia care îl păstrează.
+
+27. Dumnezeu nu cârmuiește oamenii și, ca un gospodar, aruncă semințele în pământ și el însuși nu se mai gândește la ele.
+
+28. Semințele singure se umflă, încolțesc, ies în verdeață, în pai, în spic și umplu bobul.
+
+29. Și numai când s-a copt, gospodarul trimite secerile ca să secere holda. Așa și Dumnezeu a dat lumii pe fiul său — spiritul, și spiritul singur crește în lume, și fiii spiritului alcătuiesc împărăția lui Dumnezeu.
+
+Mat. XIII, 33. Cum o femeie, punând aluatul în covată, îl amestecă cu făina și nu-l mai frământă, ci așteaptă să dospească singur și să crească.
+
+Cât timp trăiesc oamenii, Dumnezeu nu intră în viața lor; el a dat în lume spiritul, și spiritul trăiește singur în oameni și alcătuiește împărăția lui Dumnezeu. Pentru spirit nu există nici moarte, nici rău. Moartea și răul sunt pentru trup, și nu pentru spirit.
+
+<!-- vol. 24, p. 837 --> XIII, 24. Împărăția lui Dumnezeu iată cu ce se poate asemăna: un gospodar a semănat semințe bune pe ogorul său. Gospodarul — este spiritul tată; ogorul — este lumea; semințele bune — sunt fiii împărăției lui Dumnezeu.
+
+25. Iată, s-a culcat gospodarul să doarmă, și a venit vrăjmașul și a semănat pe ogor neghină. Vrăjmașul — este ispita, neghina — sunt fiii ispitei.
+
+27, 28. Iată, au venit la gospodar argații și spun: ori ai semănat semințe proaste? Pe ogorul tău a ieșit multă neghină. Trimite-ne, noi o vom plivi.
+
+29. Iar gospodarul spune: nu trebuie; altfel veți începe să pliviți neghina și veți călca în picioare și grâul.
+
+30. Lăsați-le să crească împreună. Va veni secerișul, atunci voi porunci secerătorilor să aleagă neghina și o voi arde, iar grâul îl voi strânge în șopron.
+
+Secerișul — este sfârșitul vieții omenești, iar secerătorii — sunt puterile cerești. Și vor arde neghina, iar grâul se va curăța și se va strânge. Tot așa, la sfârșitul vieții, va pieri tot ce a fost amăgire a timpului și va rămâne numai viața adevărată — în spirit. Pentru spiritul tată nu există rău. Spiritul păzește ceea ce îi trebuie, iar ceea ce nu este de la el, aceea nu există pentru el.
+
+47. Împărăția lui Dumnezeu este ca un năvod. Năvodul este tras prin mare și prinde tot felul de pește.
+
+48. Iar apoi, când îl scot, aleg peștii de nimic și îi aruncă în mare. Așa va fi și la sfârșitul veacului: puterea cerească va alege ce e bun, iar ce e rău va fi aruncat.
+
+10. Și când a terminat de vorbit, au început ucenicii lui să-l întrebe: cum să înțelegem aceste pilde?
+
+11. Și el le-a spus: pildele acestea trebuie înțelese în două feluri. Doar toate pildele acestea le spun pentru că sunt unii, ca voi, ucenicii mei, care singuri înțeleg în ce stă împărăția lui Dumnezeu; înțeleg că împărăția lui Dumnezeu este înăuntrul fiecărui om, înțeleg cum să intre în ea; iar alții nu înțeleg aceasta. Alții se uită și nu văd, și ascultă și nu înțeleg.
+
+15. Pentru că li s-a îngrășat inima. Iată, eu spun aceste pilde în două feluri, și unora, și altora. Acelora le vorbesc despre Dumnezeu, despre ce este pentru Dumnezeu împărăția lui, și ei pot înțelege aceasta. Iar vouă vă vorbesc despre ce este pentru voi împărăția lui Dumnezeu, aceea care este înăuntrul vostru.
+
+18. Și voi, băgați de seamă — înțelegeți cum se cuvine pilda despre semănător. Pentru voi pilda iată ce înseamnă.
+
+19. Oricine a înțeles sensul împărăției lui Dumnezeu, dar nu l-a primit în inima sa, la acela vine răul și răpește ce s-a semănat; această sămânță — este pe drum.
+
+<!-- vol. 24, p. 838 --> 20. Ce s-a semănat pe piatră — acesta este cel care îndată primește cu bucurie.
+
+21. Dar nu are rădăcină în el, ci primește numai pentru o vreme, iar când vine strâmtorarea, prigoana din pricina sensului împărăției, îndată se și leapădă.
+
+22. Ce s-a semănat în pelin — acesta este cel care a înțeles sensul împărăției, dar grijile lumești și lăcomia de bogăție înăbușă în el sensul, și el nu dă rod.
+
+23. Iar în pământ bun — acesta este cel care a înțeles sensul împărăției și l-a primit în inima sa. Acesta face rod, care însutit, care de șaizeci de ori, care de treizeci de ori.
+
+12. Pentru că celui ce ține i se va da mult, iar celui ce nu ține i se va lua și ce mai are.
+
+Luc. VIII, 18. Și de aceea băgați de seamă cum înțelegeți pildele. Înțelegeți așa încât să nu vă lăsați în voia amăgirilor, a jignirilor și a grijilor, ci să aduceți rod de treizeci de ori, de șaizeci de ori și însutit.
+
+Mat. XIII, 31. Împărăția cerului crește în suflet din nimic, dar dă totul. Ea este ca o sămânță de mesteacăn, cea mai mică dintre boabe, care, când crește, este mai mare decât toți copacii, și păsările cerului își fac cuiburi în ei.
