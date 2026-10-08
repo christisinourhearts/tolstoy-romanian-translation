@@ -10,9 +10,10 @@ audited source text by path and checksum. Companion to
 ## Traduceri
 
 - [Opere](translations/works/)
+  - [*Evanghelia pe scurt*](translations/works/v24_801_938_Evanghelia_pe_scurt.md) (*Краткое изложение Евангелия*, 1881/1883), vol. 24, pp. 801–938
   - [*Stăpân și slugă*](translations/works/v29_003_046_Stapan_si_sluga.md) (*Хозяин и работник*, 1895), vol. 29, pp. 3–46
 
-Depozitul conține în prezent **1 fișier tradus**.
+Depozitul conține în prezent **2 fișiere traduse**.
 
 ## Identitatea sursei
 
