@@ -32,7 +32,7 @@ Depozit rusesc: `christisinourhearts/tolstoy-russian-md` (doar pentru citire). F
 - Decizii noi: D0005 (titlul), D0006 (termenii-cheie: înțelegere, spirit, ispită/ispitire, fiul omului, voia tatălui), D0007 (textele evanghelice după Tolstoi, nu după o Biblie românească), D0008 (anacronismele și realiile), D0009 (greșelile de tipar).
 - Tradusă, auditată și redactată de același model într-un singur context; se recomandă o lectură independentă (de preferat a unui vorbitor nativ de română care citește rusa) și compararea cu traducerea engleză, când va fi gata.
 - **Audit independent la rece (2026-10-08)**, ramura `gospel-in-brief-cold-audit`, raport `project/qa/reports/R002_COLD_AUDIT.md`: textul întreg recitit paragraf cu paragraf, de la rusă, într-un context nou. 59 de constatări corectate (78 de înlocuiri pe 69 de rânduri; un commit pe capitol): 1 omisiune, 3 adaosuri, 15 sensuri inversate sau deplasate (între care «пока» = «până să» în Mt 25:5, 10, temerea din In 13:38 făcută poruncă, întrebarea din In 9:19 făcută afirmație), 6 terminologie, 2 alunecări spre Biblie («масло» = «mir» de 14 ori, acum «untdelemn»; «a se blestema» din Cornilescu, Mt 26:74), 4 netezeri, 28 de limbă română; 0 trimiteri greșite. **Verdict: PASS AFTER REVISION.**
-- Verificarea «вражды» (In 6:35, p. 856) pe vol. 24 tipărit **nu s-a putut face**: gazdele cu scanări sunt blocate în mediul auditului. Fișierul TEI de arhivă are tot «вражды». Rămâne deschisă.
+- Verificarea «вражды» (In 6:35, p. 856) pe vol. 24 tipărit: **confirmată** pe o scanare a p. 856 trimisă de proprietarul proiectului (gazdele cu scanări erau blocate în mediul auditului); tiparul și TEI au «вражды». Româna «dușmănia» rămâne; înregistrarea e închisă.
 - `TERMINOLOGY.md` completat după audit: масло / мѵро, злоба, возвысить / возвеличить, выпытывать, сойтись.
 
 ## Starea corpusului
@@ -41,5 +41,5 @@ Depozit rusesc: `christisinourhearts/tolstoy-russian-md` (doar pentru citire). F
 
 ## URMĂTOAREA ACȚIUNE
 
-1. Lectură independentă a *Stăpân și slugă*. Pentru *Evanghelia pe scurt* auditul la rece este făcut (`R002_COLD_AUDIT.md`); rămân: lectura unui vorbitor nativ de română care citește rusa, alinierea de control cu traducerea engleză după ce va fi publicată și verificarea «вражды» (vol. 24, p. 856) pe PDF-ul de pe tolstoy.ru.
+1. Lectură independentă a *Stăpân și slugă*. Pentru *Evanghelia pe scurt* auditul la rece este făcut (`R002_COLD_AUDIT.md`); rămân: lectura unui vorbitor nativ de română care citește rusa și alinierea de control cu traducerea engleză după ce va fi publicată.
 2. Următoarele unități se aleg în funcție de ce se publică pe christisinourhearts.com; paginile românești existente ale site-ului (de ex. *Doi bătrâni*, *Ilyas*) pot fi aduse în depozit ca unități noi, fiecare cu propria înregistrare de acoperire.

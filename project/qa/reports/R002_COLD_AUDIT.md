@@ -6,7 +6,7 @@ An independent cold fidelity audit of `translations/works/v24_801_938_Evanghelia
 
 **59 findings** were confirmed and fixed (78 edits on 69 lines). Most are Romanian-language slips (agreement, broken idioms, russianisms). The meaningful ones are: two places where «până să» (*before*) reversed Tolstoy's «пока» (*while*) in the parable of the ten virgins; Peter's apprehensive «как бы … не отрекся» turned into a command; a question in Jn 9:19 turned into a statement; «добро» (*goods*) read as «bunătate» (*kindness*); «жалеть для» read as «a regreta»; and a Bible-version slippage — Tolstoy's plain «масло» (*oil*) was rendered 14 times as «mir», the Synodal/Cornilescu *myrrh*, although Tolstoy himself distinguishes «масло» from «мѵро» in ch. X. No omitted sentences or clauses were found beyond one concessive particle; no verse reference or number was miscopied.
 
-The print check of «вражды» (Jn 6:35) could **not** be completed: tolstoy.ru, rusneb.ru, archive.org, ru.wikisource.org and tolstoy-lit.ru are all blocked by this environment's network policy. The TEI archive file (tolstoydigital/TEI) was fetched and also reads «вражды», so the Markdown layer reproduces its archive faithfully; whether the printed vol. 24 reads «вражды» or «жажды» remains open.
+The print check of «вражды» (Jn 6:35) is **confirmed**. The scan hosts (tolstoy.ru, rusneb.ru, archive.org, ru.wikisource.org, tolstoy-lit.ru) were blocked in the audit environment, but the project owner supplied a scan of printed vol. 24, p. 856, and it reads «…тот не будет никогда знать вражды.» The TEI archive reads the same. The source text is correct as transcribed and the Romanian «dușmănia» stands.
 
 **Verdict: PASS AFTER REVISION.**
 
@@ -481,12 +481,13 @@ Fiecare constatare: locul, rusa, româna veche, româna nouă, motivul.
 
 Lectura din `project/qa/source_suspected/v24_801_938_Kratkoe_izlozhenie_Evangelija_Predislovie.json`: cap. V, In 6:35 (vol. 24, p. 856) — «а тот, кто верит в мое учение, тот не будет никогда знать вражды», posibil «жажды» (cf. In 6:35 «не будет жаждать никогда»).
 
-**Rezultat: nu am putut confirma lectura pe ediția tipărită.**
+**Rezultat: lectura «вражды» este confirmată pe ediția tipărită.**
 
-- tolstoy.ru (`/online/90/24/`, PDF-ul vol. 24), rusneb.ru, archive.org, ru.wikisource.org și tolstoy-lit.ru sunt toate blocate de politica de rețea a acestui mediu (CONNECT respins de proxy, `EGRESS_BLOCKED`). Nicio scanare nu a putut fi deschisă.
+- **Martorul tipărit:** o scanare a p. 856 din vol. 24 al ediției de 90 de volume (1957), trimisă de proprietarul proiectului în timpul auditului. Numărul paginii, 856, se vede la subsol, iar pagina cuprinde In 6:7–40 în aceeași ordine ca sursa (6:7; Mt 14:17 / In 6:9; 6:10, 11, 26–33, 35–40). Versetul 35 se citește limpede: «Мое учение дает истинное питание людям. Тот, кто последует мне, тот не будет голодать, а тот, кто верит в мое учение, тот не будет никогда знать вражды.» Restul paginii coincide cu stratul Markdown.
+- Gazdele cu scanări (tolstoy.ru, `/online/90/24/`; rusneb.ru; archive.org; ru.wikisource.org; tolstoy-lit.ru) au fost blocate de politica de rețea a mediului de audit (CONNECT respins, `EGRESS_BLOCKED`), de aceea scanarea a venit de la proprietar.
 - O căutare web a frazei exacte, cu «вражды» sau cu «жажды», nu a găsit niciun martor.
-- **Ce s-a putut verifica:** fișierul de arhivă TEI `tolstoydigital/TEI/texts/works/v24_801_938_Kratkoe_izlozhenie_Evangelija_Predislovie.xml` (SHA-256 `b9d47b57…a29062`, descărcat de pe raw.githubusercontent.com) are același text: «…тот не будет никогда знать вражды.», urmat de `<pb n="856"/>`. Stratul Markdown reproduce deci fidel arhiva; eroarea, dacă există, este fie în TEI, fie chiar în tipar.
-- **Decizie:** conform D0009, româna rămâne «dușmănia» (traducerea a ceea ce este scris), iar înregistrarea rămâne deschisă. Pasul următor: cineva cu acces la PDF-ul vol. 24 (tolstoy.ru) să citească p. 856.
+- **Ce s-a putut verifica:** fișierul de arhivă TEI `tolstoydigital/TEI/texts/works/v24_801_938_Kratkoe_izlozhenie_Evangelija_Predislovie.xml` (SHA-256 `b9d47b57…a29062`, descărcat de pe raw.githubusercontent.com) are același text: «…тот не будет никогда знать вражды.», urmat de `<pb n="856"/>`. Tiparul, TEI și Markdown concordă.
+- **Decizie:** «вражды» este textul tipărit, nu o greșeală de transcriere. Dacă e cuvântul voit al lui Tolstoi sau o greșeală a ediției din 1957 nu se poate hotărî din tipar; conform D0009, româna rămâne «dușmănia». Înregistrarea din `source_suspected` este închisă.
 
 Celelalte lecturi din înregistrare (greșeli de tipar, trimiteri greșite, citatul francez) au fost revăzute pe sursă: toate sunt descrise corect, iar tratamentul lor în română corespunde D0007 și D0009.
 
@@ -494,4 +495,4 @@ Celelalte lecturi din înregistrare (greșeli de tipar, trimiteri greșite, cita
 
 **PASS AFTER REVISION.**
 
-Traducerea este completă și, în ansamblu, fidelă: nicio frază lipsă, nicio trimitere greșită, terminologia fixată ținută consecvent. Auditul a găsit însă erori reale de sens pe care auditul inițial nu le prinsese — două inversări prin «până să», o temere transformată în poruncă, o întrebare transformată în afirmație, «добро» = «bunătate», «жалеть для» = «a regreta» — și o alunecare sistematică spre vocabularul biblic («mir» pentru «масло»), plus 28 de scăpări de limbă. După corecturile din această ramură, unitatea trece. Rămâne deschisă verificarea «вражды» pe ediția tipărită.
+Traducerea este completă și, în ansamblu, fidelă: nicio frază lipsă, nicio trimitere greșită, terminologia fixată ținută consecvent. Auditul a găsit însă erori reale de sens pe care auditul inițial nu le prinsese — două inversări prin «până să», o temere transformată în poruncă, o întrebare transformată în afirmație, «добро» = «bunătate», «жалеть для» = «a regreta» — și o alunecare sistematică spre vocabularul biblic («mir» pentru «масло»), plus 28 de scăpări de limbă. După corecturile din această ramură, unitatea trece. Lectura «вражды» este confirmată pe ediția tipărită (p. 856).
