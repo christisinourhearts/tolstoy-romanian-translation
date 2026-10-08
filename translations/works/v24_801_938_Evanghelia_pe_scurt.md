@@ -755,7 +755,7 @@ Ca să împlinești voia tatălui, care dă viață și bine tuturor oamenilor, 
 
 <!-- vol. 24, p. 839 --> *Prima* *poruncă*. Să nu nedreptățești pe nimeni și să faci așa încât să nu stârnești în nimeni răul, pentru că din rău se naște răul.
 
-*A doua poruncă*. Să nu faci curte femeilor, să nu o părăsești pe femeia cu care te-ai împreunat, pentru că părăsirea femeilor și schimbarea lor produce tot desfrâul din lume.
+*A doua poruncă*. Să nu faci curte femeilor, să nu o părăsești pe femeia cu care te-ai însoțit, pentru că părăsirea femeilor și schimbarea lor produce tot desfrâul din lume.
 
 *A treia poruncă*. Să nu juri în nimic, pentru că nu poți făgădui nimic, întrucât omul este cu totul în puterea tatălui, iar jurămintele se iau pentru fapte rele.
 
@@ -763,7 +763,7 @@ Ca să împlinești voia tatălui, care dă viață și bine tuturor oamenilor, 
 
 *A cincea poruncă*. Să nu faci deosebire între patria ta și una străină, pentru că toți oamenii sunt copiii unui singur tată.
 
-Aceste cinci porunci trebuie ținute nu ca să câștigi lauda oamenilor, ci pentru tine, pentru fericirea ta. Nici să te rogi, nici să postești nu este necesar. Să te rogi nu e necesar pentru că tatăl știe tot ce le trebuie oamenilor. Și nu ai ce să-i ceri; trebuie numai să te străduiești să fii în voia tatălui. Iar voia tatălui este să nu ai ură pe nimeni. Să postești nu e necesar: oamenii postesc numai pentru lauda oamenilor; iar lauda oamenilor nu poate da fericirea. Trebuie să te îngrijești numai să fii în voia tatălui, iar restul va veni de la sine. Dacă te îngrijești de cele trupești, atunci nu te mai poți îngriji de împărăția cerului. Și fără grija de mâncare și de îmbrăcăminte omul va fi viu. Tatăl dă viața. Trebuie să te îngrijești numai ca în ceasul de acum să fii în voia tatălui. Tatăl le dă copiilor ceea ce le trebuie. Se poate dori numai puterea spiritului, pe care o dă tatăl. Cele cinci porunci hotărăsc calea spre împărăția cerului. Numai această cale îngustă duce la viața veșnică. Învățătorii mincinoși, lupi în piei de oaie, încearcă întotdeauna să-i abată pe oameni de pe această cale. Trebuie să te ferești de ei. Pe învățătorii mincinoși îi poți recunoaște întotdeauna, pentru că ei învață răul în numele binelui. Dacă învață silnicia, execuțiile — sunt învățători mincinoși. După faptele pe care le învață îi poți recunoaște.
+Aceste cinci porunci trebuie ținute nu ca să câștigi lauda oamenilor, ci pentru tine, pentru fericirea ta. Nici să te rogi, nici să postești nu este necesar. Să te rogi nu e necesar pentru că tatăl știe tot ce le trebuie oamenilor. Și nu ai ce să-i ceri; trebuie numai să te străduiești să fii în voia tatălui. Iar voia tatălui este să nu ai răutate față de nimeni. Să postești nu e necesar: oamenii postesc numai pentru lauda oamenilor; iar lauda oamenilor nu poate da fericirea. Trebuie să te îngrijești numai să fii în voia tatălui, iar restul va veni de la sine. Dacă te îngrijești de cele trupești, atunci nu te mai poți îngriji de împărăția cerului. Și fără grija de mâncare și de îmbrăcăminte omul va fi viu. Tatăl dă viața. Trebuie să te îngrijești numai ca în ceasul de acum să fii în voia tatălui. Tatăl le dă copiilor ceea ce le trebuie. Se poate dori numai puterea spiritului, pe care o dă tatăl. Cele cinci porunci hotărăsc calea spre împărăția cerului. Numai această cale îngustă duce la viața veșnică. Învățătorii mincinoși, lupi în piei de oaie, încearcă întotdeauna să-i abată pe oameni de pe această cale. Trebuie să te ferești de ei. Pe învățătorii mincinoși îi poți recunoaște întotdeauna, pentru că ei învață răul în numele binelui. Dacă învață silnicia, execuțiile — sunt învățători mincinoși. După faptele pe care le învață îi poți recunoaște.
 
 Împlinește voia tatălui nu acela care cheamă numele lui Dumnezeu, ci acela care face faptele binelui. Așa încât cine împlinește aceste cinci porunci, acela va avea o viață neîndoielnică, pe care nimeni nu i-o <!-- vol. 24, p. 840 --> va lua, iar cine nu le va împlini, acela va avea o viață care curând i se va lua, așa încât nu va rămâne nimic. Învățătura lui Isus uimește și atrage tot poporul prin aceea că îi recunoaște pe toți liberi. Învățătura lui Isus a fost împlinirea proorociei lui Isaia, că alesul lui Dumnezeu a adus lumina oamenilor și a biruit răul, și a restabilit dreptatea prin blândețe, smerenie și bine, și nu prin silnicie.
 
@@ -815,7 +815,7 @@ Așa că iată *prima poruncă:* nu vă mâniați, nu vă certați, iar dacă v-
 
 <!-- vol. 24, p. 842 --> Mat. XIX, 7. *A doua poruncă*. În legea de mai înainte este spus: să nu preacurvești. Și dacă vrei să-ți lași femeia, dă-i carte de despărțire; iar eu vă spun că, dacă te desfeți privind frumusețea unei femei, atunci deja preacurvești. Orice desfrâu pierde sufletul, și de aceea e mai bine pentru tine să renunți la desfătarea trupească decât să-ți pierzi viața.
 
-9. Și dacă îți vei lăsa femeia, atunci, pe lângă faptul că ești desfrânat, o mâni și pe ea în desfrâu, și pe acela care se va lega de ea. Și de aceea, iată *a doua poruncă:* Să nu crezi că iubirea pentru femeie ar fi un lucru bun. Nu te desfăta privind femeile, ci trăiește cu aceea cu care te-ai împreunat și nu o părăsi.
+9. Și dacă îți vei lăsa femeia, atunci, pe lângă faptul că ești desfrânat, o mâni și pe ea în desfrâu, și pe acela care se va lega de ea. Și de aceea, iată *a doua poruncă:* Să nu crezi că iubirea pentru femeie ar fi un lucru bun. Nu te desfăta privind femeile, ci trăiește cu aceea cu care te-ai însoțit și nu o părăsi.
 
 *A treia poruncă*. În legea de mai înainte este spus: să nu rostești numele Domnului Dumnezeului tău în deșert, să nu chemi pe Dumnezeul tău în minciună (Lev. XIX, 12). Să nu necinstești numele Dumnezeului tău. Să nu jurați pe mine în nedreptate, așa încât să-l pângăriți pe Dumnezeul vostru. Iar eu vă spun.
 
@@ -827,7 +827,7 @@ Mat. V, 34. Că orice jurământ este o pângărire a lui Dumnezeu, și de aceea
 
 38. *A patra poruncă.* În legea de mai înainte este spus: (Ieș. XXI, 21 și 22): că acela care va pierde un suflet trebuie să dea suflet pentru suflet, ochi pentru ochi, dinte pentru dinte, mână pentru mână, bou pentru bou, rob pentru rob și încă multe altele.
 
-39. Iar eu vă spun: nu lupta cu răul prin rău și nu numai că să nu iei prin judecată bou pentru bou, rob pentru rob, suflet pentru suflet, ci să nu te împotrivești deloc răului.
+39. Iar eu vă spun: nu lupta cu răul prin rău și nu numai să nu iei prin judecată bou pentru bou, rob pentru rob, suflet pentru suflet, ci să nu te împotrivești deloc răului.
 
 40. Dacă cineva vrea să-ți ia prin judecată un bou, dă-i altul; cine vrea să câștige de la tine prin judecată caftanul, dă-i și cămașa, cine îți scoate un dinte dintr-o falcă, întoarce-i și cealaltă falcă.
 
@@ -889,7 +889,7 @@ Greșelile mele de mai înainte netezește-le și șterge-le, așa cum și eu ne
 
 Pentru că a ta este stăpânirea și puterea și hotărârea ta.
 
-Marc. XI, 25. Dacă vă rugați, mai întâi de toate să nu țineți răul asupra nimănui.
+Marc. XI, 25. Dacă vă rugați, mai întâi de toate să nu purtați rău nimănui.
 
 <!-- vol. 24, p. 845 --> 26. Iar dacă nu le iertați oamenilor nedreptatea, nici tatăl nu vă va ierta nedreptatea voastră.
 
