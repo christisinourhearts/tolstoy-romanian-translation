@@ -350,3 +350,241 @@ Luc. IV, 16. Și a venit Isus în locul lui de baștină, în Nazaret. Și în z
 21. Și el a spus: acum această scriptură s-a împlinit sub ochii voștri.
 
 <!-- vol. 24, p. 823 -->
+
+## Capitolul II DUMNEZEU — SPIRIT
+
+### ȘI DE ACEEA OMUL TREBUIE SĂ LUCREZE NU PENTRU TRUP, CI PENTRU SPIRIT. (CARELE EȘTI ÎN CERURI.)
+
+#### CUPRINSUL CAPITOLULUI II
+
+Iudeii care se socoteau ortodocși îl cinsteau pe un Dumnezeu exterior, un creator trupesc. După învățătura lor, acest Dumnezeu exterior făcuse cu ei o învoială. După învoială, Dumnezeu le făgăduise iudeilor să-i ajute, iar iudeii făgăduiseră să-l cinstească, și condiția principală a învoielii era ținerea sâmbetei. Isus a respins ținerea sâmbetei. El a spus: sâmbăta este o rânduială omenească. Omul viu, în spiritul său, este mai important decât toate riturile exterioare. Ținerea ritului sâmbetei, ca orice cinstire exterioară a lui Dumnezeu, cuprinde în ea însăși o înșelăciune. Nu se poate să nu faci nimic sâmbăta. Fapta bună omul trebuie s-o facă întotdeauna, și dacă sâmbăta împiedică împlinirea unei fapte bune, înseamnă că sâmbăta este o minciună.
+
+O altă condiție a învoielii cu Dumnezeu iudeii ortodocși o socoteau a nu avea legături cu necredincioșii. La aceasta Isus a spus că Dumnezeu nu vrea de la oameni jertfe, ci iubire între ei.
+
+Drept condiție a învoielii mai socoteau regulile despre spălare și curățire. Și la aceasta Isus a spus că Dumnezeu nu cere curăție exterioară, ci cere numai milostivire și iubire față de oameni. Totodată Isus a spus că riturile exterioare sunt vătămătoare și că însăși tradiția bisericească este un rău. Tradiția bisericească face ca oamenii să lepede cele mai importante fapte ale iubirii, ca, de pildă, iubirea față de mamă și de tată, și să justifice aceasta prin tradiția bisericească.
+
+Despre tot ce este exterior, despre toate regulile legii de mai înainte, care hotăra acele cazuri în care omul se pângărește, Isus a spus: să știți toți că nimic nu poate pângări pe om din afară; pe om îl pângărește numai ceea ce gândește. După aceasta Isus a venit la Ierusalim, cetatea aceea care era socotită sfântă, și în templu, în care ortodocșii socoteau că locuiește însuși Dumnezeu, și a spus că nu trebuie aduse jertfe lui Dumnezeu, că omul este mai important decât templul, că trebuie numai să-l iubești pe aproapele și să-l ajuți.
+
+<!-- vol. 24, p. 824 --> Apoi Isus a mai spus că nu trebuie să te închini lui Dumnezeu în vreun loc anume, ci trebuie să-i slujești tatălui prin faptă și prin spirit. Spiritul nu poate fi văzut și arătat. Spiritul este conștiința omului că este fiu al spiritului nesfârșit. Templul nu este necesar. Templul adevărat este lumea oamenilor uniți prin iubire. El a spus că toată cinstirea exterioară a lui Dumnezeu nu numai că este falsă și vătămătoare când ajută faptelor rele, ca cinstirea lui Dumnezeu a iudeilor, care prescrie omoruri și îngăduie nesocotirea părinților, dar este vătămătoare pentru că omul care împlinește riturile exterioare se socoate drept și se scutește de faptele iubirii. El a spus că numai acel om tinde spre bine și săvârșește faptele iubirii care își simte nedesăvârșirea. Ca să faci faptele iubirii, trebuie să te socotești nedesăvârșit. Iar cinstirea exterioară a lui Dumnezeu duce în amăgirea mulțumirii de sine. Toată cinstirea exterioară a lui Dumnezeu nu este necesară și trebuie lepădată. Nu se pot uni faptele iubirii cu împlinirea riturilor și nu se pot săvârși faptele iubirii sub formă de cinstire exterioară a lui Dumnezeu. Omul este fiul lui Dumnezeu după spirit și de aceea trebuie să-i slujească tatălui prin spirit.
+
+Mat. XII, 1; Marc. II, 23; Luc. VI, 1. S-a întâmplat că o dată, într-o sâmbătă, Isus mergea cu ucenicii prin țarină. Ucenicilor li s-a făcut foame și pe drum smulgeau spice, le frecau în mâini și mâncau. Iar după învățătura ortodocșilor, Dumnezeu statornicise cu Moise un legământ ca toți să țină sâmbăta și sâmbăta să nu facă nimic. După învățătura ortodocșilor, pe cel ce lucra sâmbăta Dumnezeu poruncise să-l ucidă cu pietre.
+
+Mt. XII, 2. Au văzut ortodocșii că ucenicii freacă spice sâmbăta și spun: așa nu se cuvine să faci sâmbăta. Sâmbăta nu e voie să lucrezi, iar voi frecați spice. Dumnezeu a statornicit sâmbăta și a poruncit ca pentru încălcare să se pedepsească cu moartea.
+
+7. Isus a auzit aceasta și spune: dacă ați înțelege ce înseamnă cuvintele lui Dumnezeu: vreau iubire, și nu jertfă, — n-ați învinui pentru ceea ce nu este vină.
+
+8. Omul este mai important decât sâmbăta.
+
+Luca XIII, 10. S-a întâmplat altă dată, într-o sâmbătă, că, pe când Isus învăța în adunare,
+
+11. s-a apropiat de el o femeie bolnavă și l-a rugat s-o ajute.
+
+12. Și Isus a început s-o îngrijească.
+
+<!-- vol. 24, p. 825 --> 14. Atunci starostele ortodox al bisericii s-a mâniat pentru aceasta pe Isus și a spus poporului: în legea lui Dumnezeu este spus: sunt șase zile în săptămână ca să se lucreze.
+
+Luc. XIV, 3. Iar Isus, la aceasta, i-a întrebat pe legiștii ortodocși: ce, după legea voastră nu e voie nici să ajuți un om sâmbăta?
+
+6. Și ei n-au știut ce să răspundă.
+
+Mt. XII, 11; Luc. XIV, 5. Atunci Isus a spus: înșelătorilor! oare fiecare dintre voi nu-și dezleagă vita de la iesle și nu o duce s-o adape sâmbăta? Și dacă cuiva îi cade o oaie în fântână, doar va alerga oricine și o va scoate, deși e sâmbătă.
+
+Mt. XII, 12. Doar omul este cu mult mai bun decât o oaie. Și spuneți că omului nu e voie să-l ajuți. Ce trebuie atunci, după voi, să faci sâmbăta — binele sau răul? Să salvezi un suflet sau să-l pierzi? Binele trebuie să-l faci întotdeauna, și sâmbăta.
+
+Mt. IX, 9. L-a văzut odată Isus pe un strângător de dări la strânsul dărilor. Pe strângătorul de dări îl chema Matei. Isus a început să vorbească cu el, și Matei l-a înțeles, i-a îndrăgit învățătura, și l-a poftit la el în ospeție, și i-a făcut un ospăț.
+
+10. Când Isus a venit la Matei, au venit la Matei prietenii lui — strângători de dări și necredincioși, și Isus nu s-a scârbit de ei și s-a așezat el și ucenicii lui.
+
+11. Și iată, ortodocșii au văzut aceasta și le spun ucenicilor lui Isus: cum de mănâncă învățătorul vostru cu strângătorii de dări și cu cei rătăciți? Iar după învățătura ortodocșilor, Dumnezeu poruncise să nu ai legături cu necredincioșii.
+
+12. Isus a auzit aceasta și spune: celui ce se laudă cu sănătatea nu-i trebuie doctor, ci celui ce e bolnav îi trebuie.
+
+13. Înțelegeți ce înseamnă cuvintele lui Dumnezeu: iubire vreau, și nu jertfă. Eu nu pot să-i învăț schimbarea credinței pe cei care se socotesc ortodocși, ci îi învăț pe cei care se socotesc rătăciți.
+
+Mat. XV, 1; Marc. VII, 1. Au venit la Isus legiști ortodocși din Ierusalim.
+
+Mat. XV, 2; Marc. VII, 2. Și au văzut că ucenicii lui și el însuși mănâncă pâine cu mâinile nespălate. Și au început legiștii ortodocși să-l osândească pentru aceasta.
+
+Mat. XV, 3. Pentru că ei înșiși țin cu strictețe, după tradiția bisericească, cum să speli vasele, și dacă nu le spală, nu mănâncă.
+
+Marc. VII, 4. Și tot așa, de la târg nu mănâncă nimic dacă nu spală.
+
+<!-- vol. 24, p. 826 --> 5. Și l-au întrebat legiștii ortodocși: de ce nu trăiți voi după tradiția bisericească și luați și mâncați pâinea cu mâinile nespălate?
+
+Mat. XV, 3. Și el le-a răspuns: dar voi cum de încălcați, după tradiția voastră bisericească, porunca lui Dumnezeu?
+
+Marc. VII, 10. Dumnezeu v-a spus: cinstește pe tatăl tău și pe mama ta.
+
+11. Iar voi ați născocit că oricine poate să spună: dau lui Dumnezeu ceea ce dădeam părinților.
+
+12. Și atunci puteți să nu-i hrăniți pe tată și pe mamă. Iată cum stricați prin tradiția bisericească porunca lui Dumnezeu.
+
+Mat. XV, 7. Înșelătorilor! adevărul a spus despre voi profetul Isaia;
+
+8. „Pentru că poporul acesta numai cu vorba se pleacă înaintea mea și cu limba mă cinstește, pe când inima lui este departe de mine.
+
+9. Și pentru că frica lui de mine este numai o poruncă omenească, pe care a învățat-o pe de rost, pentru aceasta voi face asupra acestui popor un lucru uimitor, neobișnuit: înțelepciunea înțelepților lui va pieri și mintea celor cu minte ai lui se va întuneca. Vai celor ce se îngrijesc să-și ascundă dorințele de Cel Veșnic și care își fac faptele în întuneric”.
+
+Marc. VII, 8. Așa și voi, lăsați ce este important în lege, ceea ce este porunca lui Dumnezeu, și țineți tradiția voastră omenească — să clătiți ceștile.
+
+14. Și Isus a chemat tot poporul și a spus: ascultați toți și înțelegeți.
+
+15. Nu este nimic pe lume care, intrând în om, să-l poată spurca, ci ceea ce iese din el, aceea îl spurcă pe om. Să fie în sufletul tău iubire și milostivire, și atunci totul va fi curat.
+
+16. Încercați să înțelegeți aceasta.
+
+17. Și când s-a întors acasă, ucenicii l-au întrebat ce înseamnă aceste cuvinte.
+
+18. Și el a spus: oare nici voi n-ați înțeles aceasta? Oare nu înțelegeți că tot ce este exterior, trupesc, nu-l poate pângări pe om?
+
+19. Pentru că intră în el nu în suflet, ci în pântece. În pântece intră, iar din fund iese afară cu fecalele.
+
+20. Numai ceea ce iese din om, din sufletul lui, îl poate pângări pe om.
+
+<!-- vol. 24, p. 827 --> 21. Pentru că din sufletul omului iese răul: desfrânarea, porcăria, omorul, furtul, lăcomia, răutatea, înșelăciunea, obrăznicia, invidia, clevetirea, trufia, toată nebunia.
+
+23. Tot acest rău este din sufletul omului, și numai el îl poate pângări pe om.
+
+Ioan II, 13. După aceasta s-a apropiat paștele, și a venit Isus la Ierusalim și a intrat în templu.
+
+14. În pridvorul templului stăteau vite: vaci, boi, berbeci, și erau făcute cuști cu porumbei, erau la tarabe zarafi cu bani. Toate acestea erau necesare ca să se aducă lui Dumnezeu. Le omorau și le aduceau în templu. În aceasta stătea rugăciunea iudeilor, așa cum îi învățau legiștii ortodocși.
+
+15. Isus a intrat în templu, a împletit un bici și a izgonit toate vitele din pridvor, și i-a slobozit pe toți porumbeii, și a împrăștiat toți banii.
+
+16. Și a poruncit să nu se mai aducă nimic din toate acestea în templu.
+
+17. El a spus: profetul Isaia v-a spus: casa lui Dumnezeu nu este templul din Ierusalim, ci toată lumea oamenilor lui Dumnezeu. Iar profetul Ieremia v-a spus și el: nu credeți cuvintele mincinoase că aici este casa Celui Veșnic, nu credeți aceasta, ci schimbați-vă viața și nu judecați mincinos, nu asupriți pe străin, pe văduvă, pe orfan, nu vărsați sânge nevinovat și nu veniți în casa lui Dumnezeu și nu spuneți: acum putem face mârșăvii în liniște. Să nu credeți că o peșteră de tâlhari poate fi casa tatălui.
+
+18. Și s-au pornit iudeii la ceartă și îi spun: tu spui că felul nostru de a fi plăcuți lui Dumnezeu nu este drept; cu ce vei dovedi aceasta?
+
+19. Și, întorcându-se către ei, Isus a spus: dărâmați templul acesta, și eu în trei zile voi trezi un templu nou, viu.
+
+20. Și iudeii au spus: cum o să faci tu acum un templu nou, când acesta s-a zidit patruzeci și șase de ani?
+
+Mat. XII, 6. Și Isus le-a spus: eu vă vorbesc despre ceea ce este mai important decât templul.
+
+7. N-ați spune aceasta dacă ați înțelege ce înseamnă cuvintele profetului: „eu, Dumnezeu, nu mă bucur de jertfele voastre, ci mă bucur de iubirea voastră între voi”. Templul viu — aceasta este toată lumea oamenilor, când se iubesc unii pe alții.
+
+Ioan II, 23. Și atunci, la Ierusalim, mulți oameni au crezut în ceea ce spunea el.
+
+24. Iar el însuși nu credea în nimic exterior, pentru că știa că totul este în om.
+
+<!-- vol. 24, p. 828 --> 25. Nu-i trebuia ca cineva să-l învețe despre om, pentru că știa că în om este — spiritul.
+
+Ioan IV, 4. Și a trebuit odată Isus să treacă prin Samaria.
+
+5. Trecea pe lângă satul samaritean Sihar, lângă locul acela pe care îl dăduse Iacov fiului său Iosif.
+
+6. Era acolo fântâna lui Iacov. Isus obosise de drum și s-a așezat la fântână.
+
+8. Iar ucenicii lui se duseseră în oraș după pâine.
+
+7. Și vine din Sihar o femeie după apă. Isus i-a cerut să-i dea să bea.
+
+9. Iar ea îi spune: cum așa, tu îmi ceri să-ți dau să bei? Doar voi, iudeii, nu aveți legături cu noi, samaritenii.
+
+10. Iar el îi spune: dacă m-ai cunoaște și ai cunoaște ceea ce învăț eu, n-ai spune aceasta, ci mi-ai da să beau, iar eu ți-aș da apa vieții.
+
+13. Cine va bea din apa ta, acela iar va vrea să bea.
+
+14. Iar cine va bea din apa mea va fi mulțumit pentru totdeauna, și această apă a mea îl va duce în viața veșnică.
+
+19. Femeia a înțeles că el vorbește despre cele dumnezeiești și îi spune: văd că tu ești profet, vrei să mă înveți.
+
+20. Dar cum să mă înveți tu cele dumnezeiești, când tu ești iudeu, iar eu samariteancă? Ai noștri se roagă lui Dumnezeu pe muntele acesta, iar voi, iudeii, spuneți că numai în Ierusalim este casa lui Dumnezeu. Nu poți să mă înveți cele dumnezeiești, pentru că voi aveți o credință, iar noi alta.
+
+21. Iar Isus îi spune: crede-mă, femeie, a venit vremea ca nu pe muntele acesta și nici în Ierusalim să se roage oamenii tatălui.
+
+22. Pentru că, dacă se roagă lui Dumnezeu, se roagă celui pe care nu-l cunosc, iar dacă se roagă tatălui, se roagă celui pe care nu se poate să nu-l cunoști.
+
+23. A venit vremea ca adevărații cinstitori ai lui Dumnezeu să-l cinstească nu pe Dumnezeu, ci pe tatăl, în spirit și prin faptă. Asemenea cinstitori îi trebuie tatălui.
+
+24. Dumnezeu — acesta este spiritul, și trebuie cinstit în spirit și prin faptă.
+
+25. Femeia n-a deslușit ce i-a spus el și spune: am auzit că trimisul lui Dumnezeu va veni, acela pe care îl numesc unsul. El atunci ne va spune totul.
+
+26. Iar Isus îi spune: eu sunt, acela care vorbește cu tine. Nu mai aștepta nimic.
+
+<!-- vol. 24, p. 829 --> Ioan III, 22. După aceea a venit Isus în țara Iudeii și acolo a trăit cu ucenicii și a învățat.
+
+23. În vremea aceea Ioan învăța oamenii lângă Salim și îi scălda în râul Enon,
+
+24. pentru că Ioan nu fusese încă pus în temniță.
+
+25. Și s-a iscat între ucenicii lui Ioan și ucenicii lui Isus o ceartă despre ce este mai bun: curățirea lui Ioan în apă sau învățătura lui Isus.
+
+26. Și au venit la Ioan și i-au spus: iată, tu curăți cu apă, iar Isus numai învață; și toți se duc la el. Ce spui despre el?
+
+27. Ioan a spus: omul nu poate învăța singur nimic, dacă nu-l învață Dumnezeu.
+
+28. Cine spune cele pământești, acela pământesc și este, iar dacă cineva vorbește de la Dumnezeu, atunci — de la Dumnezeu.
+
+32, 33 și 34. Nu se poate dovedi cu nimic dacă de la Dumnezeu sunt cuvintele care se spun sau nu de la Dumnezeu. Dumnezeu — acesta este spiritul; el nu poate fi măsurat și nu poate fi dovedit. Cine va înțelege cuvintele spiritului, prin aceasta chiar dovedește că este de la spirit.
+
+35. Tatăl, iubindu-l pe fiu, i-a dat totul.
+
+36. Cine crede în fiu, acela are viață; iar cine nu crede în fiu, acela nu are viață. Dumnezeu este spiritul din om.
+
+Luc. XI, 37. După aceasta a venit la Isus un ortodox și l-a poftit la el la prânz. El a intrat și s-a așezat la masă.
+
+38. Ortodoxul a observat că el nu s-a spălat înainte de prânz și s-a mirat.
+
+39. Iar Isus îi spune: voi, ortodocșii, pe dinafară spălați totul: dar înăuntru e curat la voi? Fii milostiv cu oamenii, și totul va fi curat.
+
+Luc. VII, 37. Și pe când el ședea în casă la ortodox, a venit o femeie din oraș, era o necredincioasă. Ea aflase că Isus este în casă la ortodox, și a venit și ea acolo și a adus un flacon cu parfum.
+
+38. Și a îngenuncheat la picioarele lui, a plâns și cu lacrimile îi uda picioarele, i le ștergea cu părul și le turna parfum din flacon.
+
+39. A văzut aceasta ortodoxul și și-a zis în sine: cu greu să fie el profet. Dacă ar fi într-adevăr profet, ar ști ce fel de femeie îi spală picioarele, ar ști că aceasta este — o necredincioasă, și nu i-ar îngădui să se atingă de el.
+
+40. Isus a ghicit, s-a întors spre el și spune: să-ți spun ce gândesc? — Spune, — zice.
+
+<!-- vol. 24, p. 830 --> 41. Iar Isus spune: iată ce: doi oameni se socoteau datori unui stăpân: unul cinci sute de bani, iar altul cincizeci.
+
+42. Și n-aveau cu ce să dea nici unul, nici altul. Iar stăpânul i-a iertat pe amândoi. Ei, după mintea ta, care îl va iubi mai mult pe stăpân și se va îngriji mai mult de el?
+
+43. Acela spune: se știe, cel care era dator mai mult.
+
+44. Isus a arătat spre femeie și spune: așa sunteți tu și femeia aceasta. Tu te socotești ortodox și de aceea dator cu puțin; ea se socoate necredincioasă și de aceea datoare cu mult. Am venit la tine în casă, nu mi-ai dat apă să-mi spăl picioarele; ea cu lacrimi îmi spală picioarele și cu părul mi le șterge.
+
+45. Tu nu m-ai sărutat, iar ea îmi sărută picioarele.
+
+46. Tu nu mi-ai dat untdelemn să-mi ung capul, iar ea cu parfum scump îmi unge picioarele.
+
+47. Cel care se socoate ortodox, acela nici nu va face faptele iubirii. Iar cine se socoate necredincios, acela va face faptele iubirii. Iar faptele iubirii izbăvesc de toate rătăcirile.
+
+48. Și i-a spus ei: da, te-ai izbăvit de rătăcirile tale. Și a spus Isus: totul stă în credința despre cine cum se socoate pe sine. Cine, după credința sa, se socoate bun, acela nu va fi bun; iar cine, după credința sa, se socoate rău, acela este bun.
+
+Luc. XVIII, 10. Și a mai spus Isus: au venit odată la templu să se roage doi oameni; unul — ortodox, celălalt — un strângător de dări necredincios.
+
+11. Ortodoxul se ruga așa: îți mulțumesc, Doamne, că nu sunt ca alții: nu sunt zgârcit, nu sunt înșelător, nu sunt desfrânat, nu sunt un ticălos ca acest strângător de dări.
+
+12. Postesc de două ori pe săptămână și din avere dau zeciuială.
+
+13. Iar strângătorul de dări a stat deoparte și nu îndrăznea să privească la cer, și numai se bătea în piept și zicea: Doamne! uită-te la mine, nevrednicul.
+
+14. Ei, și? doar acesta era mai bun decât ortodoxul, pentru că cine se înalță, acela va fi coborât, iar cine se coboară, acela va fi înălțat.
+
+Luc. V, 33. După aceasta au venit la Isus ucenicii lui Ioan și spun: de ce noi și ortodocșii postim mult, iar ucenicii tăi nu postesc? Iar după legea ortodoxă, Dumnezeu poruncise să se postească.
+
+<!-- vol. 24, p. 831 --> 34. Și le-a spus Isus: cât timp mirele este la nuntă, nimeni nu se întristează.
+
+35. Numai când nu este mirele, atunci se întristează.
+
+36. Dacă este viață, nu trebuie să te întristezi. Nu se poate uni cinstirea exterioară a lui Dumnezeu cu faptele iubirii. Nu se poate uni vechea învățătură — cinstirea exterioară a lui Dumnezeu — cu învățătura mea — a faptelor iubirii față de aproapele. A uni învățătura mea cu cea veche e totuna cu a rupe un petic dintr-o haină nouă și a-l coase pe una veche. Și pe cea nouă o rupi, și pe cea veche n-o cârpești. Trebuie primit ori tot ce e al meu, ori tot ce e vechi. Și, primind învățătura mea, nu se poate păstra cea veche: curățirea, posturile, sâmbetele.
+
+37. Cum nu se poate turna vin nou în burdufuri vechi, căci altfel se rup burdufurile și vinul se scurge.
+
+38. Ci vinul nou trebuie turnat în burdufuri noi, și și unul, și altul vor fi întregi.
+
+Mt. IV, 14, 16. Și asupra lui Isus s-a împlinit proorocia lui Isaia: poporul era în întuneric și deodată a văzut lumina. Oamenii trăiau în întunericul morții, și pentru ei a strălucit lumina.
+
+18. Și s-a împlinit o altă proorocie a lui Isaia: iată-l, copilul meu iubit. Sufletul meu se bucură de el. Pentru că în el este spiritul meu, și el va vesti popoarelor dreptatea.
+
+19. El nu se ceartă și nu strigă, și glasul lui nu se aude pe ulițe.
+
+20. Pentru ca dreptatea să biruie minciuna, el nu va rupe un pai și nu va stinge o candelă de noapte. În învățătura lui este nădejdea oamenilor.
+
+25. Și mult popor mergea după el.
+
+Mt. VIII, 1. Și el umbla prin orașe și prin sate, vestind binele adevărat.
