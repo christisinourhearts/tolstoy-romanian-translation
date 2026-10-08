@@ -1942,3 +1942,221 @@ Mt. XVI, 13. Și i-a întrebat odată Isus pe ucenicii săi: spuneți-mi, cum î
 17. Și i-a spus Isus: fericit ești, Simon, că ai înțeles aceasta. Omul nu ți-a putut descoperi aceasta, ci ai înțeles-o pentru că <!-- vol. 24, p. 885 --> Dumnezeu din tine ți-a descoperit-o. Nu judecata trupească și nu eu prin cuvintele mele ți-am descoperit aceasta, ci Dumnezeu, tatăl meu, ți-a descoperit-o de-a dreptul.
 
 18. Și pe aceasta se întemeiază acea adunare a oamenilor aleși pentru care nu există moarte.
+
+## Capitolul VIII VIAȚA NU ESTE ÎN TIMP
+
+### ȘI DE ACEEA VIAȚA ADEVĂRATĂ ESTE NUMAI VIAȚA ÎN PREZENT (DĂ-NE ÎN PREZENT.)
+
+#### CUPRINSUL CAPITOLULUI VIII
+
+La îndoielile ucenicilor cu privire la ce răsplată vor avea pentru că se vor lepăda de viața trupească, Isus răspunde: pentru omul care a înțeles sensul învățăturii nu poate fi răsplată, în primul rând pentru că omul, lepădându-se de rudele sale, de cei apropiați, de averea sa în numele acestei învățături, dobândește de o sută de ori mai mulți apropiați și mai multă avere, iar în al doilea rând pentru că omul care caută răsplată caută să aibă mai mult decât altul, iar aceasta este lucrul cel mai potrivnic învățăturii împlinirii voii tatălui. Pentru împărăția cerului nu există mai mare și mai mic: toți sunt egali. Cei care caută răsplată pentru bine sunt asemenea lucrătorilor care ar cere pentru ei o plată mai mare decât aceea pentru care s-a învoit cu ei stăpânul, numai pentru că ei, după judecata lor, sunt mai vrednici decât alții. Răsplăți și pedepse, umilire și înălțare nu există pentru cel care înțelege învățătura. Nimeni nu poate fi, după învățătura lui Isus, nici mai sus, nici mai însemnat decât altul. Oricine poate împlini voia tatălui, dar din aceasta niciunul nu devine mai mare sau mai însemnat, sau mai bun decât altul. Așa se socotesc numai împărații și cei care le slujesc lor. După învățătura mea, spune Isus, nu pot fi cei mai mari, pentru că acela care vrea să fie mai bun trebuie să fie slugă tuturor, pentru că în aceasta stă învățătura, că omului i s-a dat viața nu ca să i se slujească, ci ca el să-și dea toată viața pentru slujirea altor oameni. Și acela care nu va urma aceasta și nu se va înălța pe sine, acela va cădea mai jos decât locul unde era.
+
+Ca să nu te gândești la răsplăți și la înălțarea ta, trebuie să înțelegi în ce constă sensul vieții. Sensul vieții <!-- vol. 24, p. 886 --> este în împlinirea voii tatălui; iar voia tatălui este ca ceea ce a dat el să se întoarcă la el. Precum păstorul lasă toată turma și se duce să caute oaia pierdută și precum femeia scotocește totul ca să găsească copeica pierdută, tot așa și activitatea tatălui ni se arată prin aceea că el atrage la sine ceea ce a fost al lui.
+
+Trebuie să înțelegi în ce stă viața adevărată. Viața adevărată se arată întotdeauna prin aceea că cel pierdut se întoarce la ai săi, că cel care dormea se trezește. Oamenii care au viața adevărată, care s-au întors la principiul lor, dacă au viața adevărată, nu se pot socoti omenește cine e mai bun și cine e mai rău, ci, fiind părtași la viața tatălui, se pot numai bucura de întoarcerea celui pierdut la tatăl. Dacă un fiu, rătăcind de pe drum și plecând de la tată, s-ar căi și s-ar întoarce la tatăl, oare ceilalți fii ai tatălui ar putea pizmui bucuria tatălui și să nu se bucure de întoarcerea fratelui?
+
+Ca să crezi în învățătură, ca să-ți schimbi viața și să împlinești învățătura, nu sunt necesare dovezi exterioare, nici făgăduința răsplăților, ci este necesară înțelegerea limpede a ceea ce este viața adevărată. Dacă oamenii cred că sunt stăpânii cu deplină putere ai vieții, că viața le este dată pentru desfătarea trupească, atunci, limpede, orice faptă de jertfă pentru altul li se va părea o faptă vrednică de răsplată, și fără răsplată nu vor ceda nimic. Dacă de la dijmașii care au uitat că li s-a dat livada cu condiția să-i dea roadele stăpânului s-ar cere dijma fără răsplată, ei l-ar alunga pe strângătorul dijmei, și dacă li s-ar mai aminti iar și iar de dijmă, l-ar ucide. Așa privesc și acei oameni care se recunosc stăpâni ai vieții și nu înțeleg că viața este darul înțelegerii, care cere împlinirea voii sale. Ca să crezi și să faci, trebuie să înțelegi că omul nu poate face nimic singur, că dacă își dă viața trupească pentru bine, el nu face nimic pentru care ar trebui să fie mulțumit și răsplătit. Trebuie să înțelegi că, făcând binele, omul face numai ceea ce este dator, ceea ce nu poate să nu împlinească. Numai înțelegându-și astfel viața, omul poate crede așa încât să facă adevăratele fapte ale binelui.
+
+În această înțelegere a vieții constă împărăția cerului pe care o propovăduiesc eu. Această împărăție a cerului este — nevăzută, nu este dintre acelea care se arată undeva așa încât să poată fi arătată cu degetul. Împărăția cerului este în înțelegerea oamenilor. Lumea toată a trăit și trăiește ca mai înainte: mănâncă, beau, fac negoț, se însoară, mor, și alături <!-- vol. 24, p. 887 --> de aceasta, în sufletele oamenilor, trăiește împărăția cerului. Împărăția cerului — aceasta este înțelegerea vieții, ca un copac primăvara, care crește singur din sine.
+
+Viața adevărată a împlinirii voii tatălui nu este cea care a trecut, nu este cea care va fi, ci viața de acum. Și de aceea, pentru viață, nu trebuie să slăbești niciodată. Oamenii sunt puși să păzească nu viața trecută, nu cea viitoare, ci aceea în care trăiesc, și în ea să împlinească voia tatălui tuturor. Dacă scapă această viață, neîmplinind voia tatălui, n-o vor mai întoarce, precum paznicul pus ca să păzească toată noaptea nu-și va împlini lucrul dacă adoarme fie și pentru un minut, pentru că în acel minut poate veni hoțul. Și de aceea toată puterea sa omul trebuie s-o mute în acest ceas, numai în el este împlinirea voii tatălui. Iar voia tatălui este viața și binele tuturor oamenilor, și de aceea împlinirea voii este binele tuturor oamenilor. Numai aceia trăiesc care fac binele. Binele făcut oamenilor este viața care unește cu tatăl comun.
+
+Mt. X, 38. Isus a spus: cine nu este gata de toate suferințele și lipsurile trupești, acela nu m-a înțeles.
+
+39. Cine va dobândi tot ce e mai bun pentru viața trupească, acela va pierde viața adevărată. Iar cine își va pierde viața trupească, împlinind învățătura mea, acela va primi viața adevărată.
+
+XIX, 27. Și la aceste cuvinte Petru i-a spus: iată, noi te-am ascultat, am lepădat toate grijile, toată averea și am mers după tine. Ce răsplată vom avea pentru aceasta?
+
+Marc. X, 29, 30. Isus i-a spus: oricine a renunțat la casă, la surori, la frați, la tată, la mamă, la femeie, la copii, la ogoare pentru învățătura mea primește de o sută de ori mai mult și surori, și frați, și ogoare, și tot ce trebuie, și, pe lângă aceasta, încă în viața aceasta primește viața în afara timpului.
+
+31. Răsplăți în împărăția cerului nu există. Împărăția cerului este scopul și răsplata. În împărăția cerului toți sunt egali: nu sunt nici primi, nici ultimi.
+
+Mt. XX, 1. Pentru că împărăția cerului iată cu ce seamănă. Un stăpân al casei s-a dus de dimineață să tocmească lucrători în livadă.
+
+2. A tocmit lucrători cu câte o grivnă pe zi și a venit în livadă, i-a pus la lucru.
+
+3. Și iar s-a dus, la prânz, și a mai tocmit și i-a trimis să lucreze în livadă, și spre seară a mai tocmit și i-a trimis să lucreze. Și cu toți s-a învoit pentru câte o grivnă.
+
+<!-- vol. 24, p. 888 --> 8. A venit vremea socotelii, și stăpânul a poruncit să li se plătească tuturor la fel. Mai întâi celor care veniseră ultimii, iar după aceea celor dintâi.
+
+9. Iată, au văzut cei dintâi că ultimilor li se dă câte o grivnă.
+
+10. Și s-au gândit că lor li se va da mai mult; dar și celor dintâi li s-a dat tot o grivnă.
+
+11. Ei au luat-o și spun:
+
+12. Cum așa, aceia au lucrat numai o tură, iar noi toate patru, cum să ne fie nouă la fel? aceasta nu e drept.
+
+13. Iar stăpânul s-a apropiat și spune: de ce cârtiți, oare v-am nedreptățit? Pentru cât v-am tocmit, atâta vă dau. Doar ne-am învoit pentru o grivnă?
+
+14. Luați-vă ce e al vostru și mergeți. Iar dacă eu vreau să-i dau celui din urmă același lucru ca și vouă, oare nu sunt stăpân pe ce e al meu?
+
+15. Ori, pentru că vedeți că sunt bun, vi s-a făcut ciudă?
+
+Mt. XX, 16. În împărăția cerului nu sunt nici primi, nici ultimi — tuturor la fel.
+
+20 și Marc. X, 35. S-au apropiat odată de Isus doi ucenici ai lui: Iacov și Ioan, și spun: învățătorule! făgăduiește-ne că ne vei face ceea ce te vom ruga.
+
+21. El spune: ce vreți? Ei spun: să fim egali cu tine.
+
+22. Isus le-a spus: voi singuri nu știți ce cereți. Să trăiți puteți la fel ca mine, să vă curățați de viața trupească puteți la fel ca mine, dar să vă fac la fel ca mine — nu stă în puterea mea.
+
+23. Fiecare om poate, prin efortul său, să intre în voia tatălui.
+
+24. Auzind aceasta, ceilalți ucenici s-au mâniat pe cei doi frați pentru că voiau să fie la fel ca învățătorul și cei mai mari dintre ucenici.
+
+25. Iar Isus i-a chemat și le-a spus: dacă voi, frații Ioan și Iacov, m-ați rugat să vă fac la fel ca mine ca să fiți cei mai mari ucenici, atunci v-ați înșelat, iar dacă și voi, ceilalți ucenici, vă mâniați pe ei pentru că aceștia doi vor să fie mai mari decât voi, atunci și voi vă înșelați. Numai în lume se socotesc împărații și căpeteniile cine e mai mare, ca să cârmuiască popoarele.
+
+26. Iar între voi nu pot fi nici mai mari, nici mai mici. Între voi, ca să fii mai mare decât altul, trebuie să fii slugă tuturor.
+
+<!-- vol. 24, p. 889 --> 27. Între voi, cine vrea să fie primul, acela să se socotească ultimul.
+
+Marc. X, 45. Pentru că în aceasta stă voia tatălui despre fiul omului, că el nu trăiește pentru ca să i se slujească, ci ca el însuși să le slujească tuturor și să-și dea viața trupească drept răscumpărare pentru viața spiritului.
+
+Mt. XVIII, 11, 12. Și Isus a spus poporului: tatăl caută mântuirea a ceea ce piere. El se bucură de aceasta la fel cum se bucură păstorul când găsește o oaie pierdută. Când se pierde una, el le lasă pe cele nouăzeci și nouă și se duce s-o salveze pe cea pierdută.
+
+Luc. XV, 8. Și dacă unei femei i se pierde o copeică, doar mătură toată casa și caută până o găsește.
+
+10. Tatăl își iubește fiul și îl cheamă la sine.
+
+XIV, 8. Și le-a mai spus o pildă despre faptul că nu se pot înălța cei care trăiesc în voia lui Dumnezeu. El a spus: dacă te cheamă la prânz, nu te așeza în colțul din față; altfel te bagi în colțul din față, și vine cineva mai de cinste decât tine, și gazda îți va spune:
+
+9. Ieși de acolo și lasă-l pe acela, care e mai bun decât tine. Atunci te vei rușina mai rău.
+
+10. Ci tu mai bine așază-te pe locul cel mai de pe urmă. Atunci gazda te va găsi și te va chema la locul de cinste; atunci vei avea cinste.
+
+11. Așa și în împărăția lui Dumnezeu nu este loc pentru mândrie. Cine se înalță pe sine, acela prin chiar aceasta se coboară; iar cine se coboară pe sine, acela prin chiar aceasta se ridică în împărăția lui Dumnezeu.
+
+XV, 11. Un om avea doi fii.
+
+12. Și cel mai mic îi spune tatălui: tată! dă-mi partea. Și tatăl i-a dat partea.
+
+13. Cel mai mic și-a luat partea și s-a dus în țară străină și a risipit toată averea și a început să ducă lipsă.
+
+15. Și a ajuns în țara străină porcar.
+
+16. Și flămânzea atât, încât mânca ghindă cu porcii.
+
+17. Și s-a pus odată pe gânduri despre viața lui și spune: de ce mi-am luat partea și am plecat de la tata. La tata era din toate mult. La tata și argații mănâncă pe săturate. Iar eu, iată, mănânc aceeași hrană cu porcii.
+
+18. Ia să mă duc la tata, să-i cad la picioare și să-i spun: sunt vinovat, tată, înaintea ta și nu sunt vrednic să-ți fiu fiu. Ia-mă măcar ca argat.
+
+20. S-a gândit și s-a dus la tatăl. Și cum a început să se apropie, îndată, de departe, l-a cunoscut tatăl și a alergat el însuși în întâmpinarea lui, l-a îmbrățișat și a început să-l sărute.
+
+<!-- vol. 24, p. 890 --> 21. Fiul spune: tată, sunt vinovat înaintea ta, nu sunt vrednic să-ți fiu fiu.
+
+22. Iar tatăl nici n-a vrut să asculte și le spune argaților: aduceți mai repede haina cea mai bună și cizmele cele mai frumoase, îmbrăcați-l și încălțați-l.
+
+23. Și alergați, prindeți vițelul îngrășat și tăiați-l, să ne veselim pentru că:
+
+24. Acest fiu al meu era mort, iar acum a devenit viu, era pierdut, iar acum s-a găsit.
+
+25. A venit fratele cel mare de la câmp, și cum a început să se apropie, aude: acasă se cântă și se joacă.
+
+26. El a chemat un băiat și spune: ce veselie e la noi?
+
+27. Iar băiatul spune: oare n-ai auzit, fratele tău s-a întors. Și tatăl tău se bucură și a poruncit să se taie vițelul îngrășat, de bucurie că fiul s-a întors.
+
+28. Fratele cel mare s-a supărat și n-a intrat în casă. Iar tatăl a ieșit la el și îl cheamă.
+
+29. Iar el i-a spus tatălui: iată, tată, de câți ani lucrez pentru tine și nu-ți calc porunca, iar tu pentru mine n-ai tăiat niciodată vițelul îngrășat.
+
+30. Iar fratele cel mic a plecat de acasă și a prăpădit toată averea cu bețivii, iar tu acum i-ai tăiat vițelul.
+
+31. Tatăl spune: doar tu ești întotdeauna cu mine, și tot ce e al meu — e al tău.
+
+32. Și tu trebuie nu să te superi, ci să te bucuri că fratele tău era printre morți și a devenit viu, era pierdut și s-a găsit.
+
+Marc. XII, 1. Un stăpân a sădit o livadă, a îngrijit-o, a rânduit-o, a făcut totul pentru ca livada să dea cât mai multe roade.
+
+2. Și a trimis în această livadă lucrători, ca să lucreze, să strângă roadele și să-i plătească, după învoială, pentru livadă.
+
+Stăpânul — este tatăl, livada — este lumea, lucrătorii — sunt oamenii. Tatăl numai pentru aceasta l-a trimis în lume pe fiul său, pe fiul omului, ca oamenii să-i dea tatălui înapoi înțelegerea vieții, pe care a pus-o în ei.
+
+A venit sorocul, stăpânul a trimis un lucrător după dijmă. Tatăl, fără încetare, le spunea oamenilor că trebuie să-i împlinească voia.
+
+3. Lucrătorii l-au alungat pe trimisul stăpânului cu mâna goală și au continuat să trăiască, închipuindu-și că livada este proprietatea lor, că ei stau în ea prin mila lor proprie. Oamenii au alungat de la ei aducerea aminte <!-- vol. 24, p. 891 --> de voia tatălui și au continuat să trăiască fiecare pentru sine, închipuindu-și că trăiesc pentru bucuriile vieții trupești.
+
+4, 5 și 6. Atunci stăpânul a mai trimis și a mai trimis pe cei iubiți ai săi, pe fiul său, ca să le amintească lucrătorilor datoria lor.
+
+7. Dar lucrătorii și-au ieșit cu totul din minți și și-au închipuit că, dacă îl vor ucide pe fiul stăpânului, care le amintește că livada nu este a lor, vor fi lăsați cu totul în pace.
+
+3. Și l-au ucis.
+
+Oamenilor nu le place nici aducerea aminte de acel spirit care trăiește în ei și le arată că el este veșnic, iar ei nu sunt veșnici; și au ucis, cât au putut, conștiința spiritului, au înfășurat-o într-o batistă și au îngropat grivna care le fusese dată.
+
+Mt. XXI, 40. Ce să facă atunci stăpânul?
+
+41. Nimic altceva decât să-i alunge pe acei lucrători și să trimită alții. Ce să facă tatăl? Să semene până va fi rod. Tocmai aceasta și face.
+
+42. Oamenii nu înțelegeau și nu înțeleg că acea conștiință a spiritului care este în ei și pe care ei o ascund, pentru că îi încurcă, că această înțelegere este viața lor. Ei aruncă piatra aceea pe care se ține totul.
+
+43. Și cei care nu vor lua drept temelie viața spiritului, aceia nu intră în împărăția cerului și nu primesc viață. Ca să ai credință și să primești viață, trebuie să-ți înțelegi situația, și nu să aștepți răsplăți.
+
+Luc. XVII, 5. Atunci ucenicii i-au spus lui Isus: înmulțește în noi credința; spune-ne așa ceva încât să credem mai tare în viața spiritului și să nu ne pară rău de viața trupească? Iată cât trebuie dat și totul trebuie dat pentru viața spiritului. Iar răsplată, spui chiar tu, nu este.
+
+6. Și la aceasta Isus le-a spus: dacă ați avea o credință la fel ca credința că dintr-o sămânță de mesteacăn crește un copac mare, dacă ați crede tot așa că în voi este singurul germen al spiritului, din care crește viața adevărată, nu m-ați ruga să înmulțesc credința în voi. Credința nu stă în a crede în ceva uimitor, ci credința stă în a-ți înțelege situația și ceea ce este mântuirea. Dacă îți înțelegi situația, nu vei aștepta răsplată, ci vei crede în ceea ce ți-a fost încredințat.
+
+7. Când stăpânul se întoarce cu argatul de la câmp, doar nu-l pune pe argat la masă.
+
+<!-- vol. 24, p. 892 --> 8. Ci îi poruncește să strângă vitele și să-i pregătească de cină, și abia după aceea îi spune argatului: așază-te și tu, bea și mănâncă.
+
+Luc. XVII, 9. Stăpânul nu-i va mulțumi argatului că a făcut ceea ce trebuia. Și argatul, dacă înțelege că este argat, nu se supără, ci muncește, crezând că va primi ceea ce i se cuvine.
+
+10. Așa și voi, împliniți voia tatălui și gândiți-vă că suntem argați netrebnici, am făcut numai ceea ce trebuia, și nu așteptați răsplată, ci mulțumiți-vă că primiți ceea ce vi se cuvine.
+
+Nu de aceasta trebuie să te îngrijești, să crezi că va fi răsplată și va fi viață; aceasta nu poate fi altfel, ci trebuie să te îngrijești să nu pierzi această viață, să nu uiți că ea ne este dată ca să-i aducem roadele, și să împlinești voia tatălui.
+
+XII, 35 și 36. Și de aceea fiți întotdeauna gata, ca slugile care își așteaptă stăpânul, ca să-i deschidă îndată ce vine.
+
+37 și 38. Slugile nu știu când se va întoarce el: devreme sau târziu, și trebuie să fie întotdeauna gata. Și dacă îl vor întâmpina pe stăpân, atunci i-au împlinit voia, și le e bine. Același lucru e și în viață. Întotdeauna, în fiecare clipă a prezentului, trebuie să trăiești viața spiritului, fără să te gândești la trecut și la viitor și fără să-ți spui: atunci sau acolo voi face cutare lucru.
+
+39. Dacă stăpânul ar ști când va veni hoțul, n-ar dormi, așa și voi să nu dormiți niciodată, pentru că pentru viața fiului omului nu există timp, și el trăiește numai în prezent și nu știe când este începutul și sfârșitul vieții lui.
+
+Mt. XXIV, 45 și 46. Viața noastră este același lucru ca viața unui rob pe care stăpânul l-a lăsat mai mare în casa sa. Și bine este de robul acela, dacă face întotdeauna voia stăpânului.
+
+48. Dar dacă va spune: stăpânul nu va veni curând, și va uita lucrul stăpânului,
+
+50. atunci stăpânul se va întoarce pe neașteptate.
+
+51. Și îl va izgoni.
+
+Marc. XIII, 33. Așadar, nu vă pierdeți nădejdea, ci întotdeauna, în prezent, trăiți prin spirit. Pentru viața spiritului nu există timp.
+
+Luc. XXI, 34. Păziți-vă, ca să nu vă îngreunați și să nu vă întunecați prin beție, prin îmbuibare, prin griji, ca să nu scăpați vremea mântuirii. Vremea mântuirii, ca un năvod, este aruncată <!-- vol. 24, p. 893 --> peste toți; ea este întotdeauna. Și de aceea, mai întâi de toate, trăiți viața fiului omului.
+
+Mt. XXV, 1. Împărăția cerului iată cu ce seamănă: Au ieșit zece fecioare cu opaițe în întâmpinarea mirelui.
+
+2. Cinci erau deștepte, iar cinci proaste.
+
+3. Cele proaste au luat opaițele, dar n-au luat untdelemn.
+
+4. Iar cele deștepte au luat opaițele și untdelemn de rezervă.
+
+5. Până să-l aștepte pe mire, ele au ațipit.
+
+6. Când a venit mirele,
+
+7. Cele proaste au văzut că au puțin untdelemn.
+
+10. Și s-au dus să caute să cumpere, iar până să umble ele, a venit mirele. Și fecioarele deștepte, care aveau untdelemn, au intrat cu el, și ușile s-au închis.
+
+Fecioarele trebuiau să meargă numai pentru aceasta, ca să-l întâmpine pe mire cu opaițele, dar ele au uitat că nu aceea e prețios, ca opaițele să ardă, ci ca ele să ardă la vreme. Iar pentru ca ele să ardă, trebuiau să ardă fără încetare. Viața este numai pentru a-l înălța pe fiul omului, iar fiul omului este întotdeauna. El nu este în timp, și de aceea, slujindu-i, trebuie să trăiești în afara timpului, numai în prezent.
+
+Luc. XIII, 24. Și de aceea faceți eforturi în prezent ca să intrați în viața spiritului, dacă nu veți face eforturi, nu veți intra.
+
+25. Veți spune: noi am spus cutare lucru, dar nu vor fi fapte bune, și nu va fi toată viața.
+
+Mt. XVI, 27. Pentru că fiul omului, ca spirit unic, se va dovedi pentru fiecare ceea ce a făcut el pentru el.
+
+XXV, 32. Oamenii se vor împărți toți după felul în care îi slujesc fiului omului. Și prin faptele lor se vor împărți în două, cum se despart în turmă oile de capre. Unii vor fi vii, alții vor pieri.
+
+34. Cei care i-au slujit fiului omului, aceia vor primi ceea ce le aparținea de la începutul lumii, acea viață pe care au păstrat-o. Iar ei au păstrat viața prin aceea că i-au slujit fiului omului.
+
+35. Pe cel flămând l-au hrănit, pe cel gol l-au îmbrăcat, pe străin l-au primit, pe cel închis l-au cercetat.
+
+Ei au trăit prin fiul omului, au simțit că el este unul în toți oamenii, și de aceea l-au iubit.
+
+Iar cei care n-au trăit prin fiul omului, aceia nu i-au slujit, n-au înțeles că el este unul în toți, și de aceea nu s-au unit cu el și și-au pierdut viața în el, și au pierit.
+
+<!-- vol. 24, p. 894 -->
