@@ -423,7 +423,7 @@ Mat. XV, 7. Înșelătorilor! adevărul a spus despre voi profetul Isaia;
 
 8. „Pentru că poporul acesta numai cu vorba se pleacă înaintea mea și cu limba mă cinstește, pe când inima lui este departe de mine.
 
-9. Și pentru că frica lui de mine este numai o poruncă omenească, pe care a învățat-o pe de rost, pentru aceasta voi face asupra acestui popor un lucru uimitor, neobișnuit: înțelepciunea înțelepților lui va pieri și mintea celor cu minte ai lui se va întuneca. Vai celor ce se îngrijesc să-și ascundă dorințele de Cel Veșnic și care își fac faptele în întuneric”.
+9. Și pentru că frica lui de mine este numai o poruncă omenească, pe care a învățat-o pe de rost, pentru aceasta voi face asupra acestui popor un lucru uimitor, neobișnuit: înțelepciunea înțelepților lui va pieri și rațiunea deștepților lui se va întuneca. Vai celor ce se îngrijesc să-și ascundă dorințele de Cel Veșnic și care își fac faptele în întuneric”.
 
 Marc. VII, 8. Așa și voi, lăsați ce este important în lege, ceea ce este porunca lui Dumnezeu, și țineți tradiția voastră omenească — să clătiți ceștile.
 
@@ -437,7 +437,7 @@ Marc. VII, 8. Așa și voi, lăsați ce este important în lege, ceea ce este po
 
 18. Și el a spus: oare nici voi n-ați înțeles aceasta? Oare nu înțelegeți că tot ce este exterior, trupesc, nu-l poate pângări pe om?
 
-19. Pentru că intră în el nu în suflet, ci în pântece. În pântece intră, iar din fund iese afară cu fecalele.
+19. Pentru că intră în el nu în suflet, ci în burtă. În burtă intră, iar din fund iese afară cu fecalele.
 
 20. Numai ceea ce iese din om, din sufletul lui, îl poate pângări pe om.
 
@@ -501,7 +501,7 @@ Ioan IV, 4. Și a trebuit odată Isus să treacă prin Samaria.
 
 24. Dumnezeu — acesta este spirit, și trebuie cinstit în spirit și prin faptă.
 
-25. Femeia n-a deslușit ce i-a spus el și spune: am auzit că trimisul lui Dumnezeu va veni, acela pe care îl numesc unsul. El atunci ne va spune totul.
+25. Femeia n-a deslușit ce i-a spus el și spune: am auzit că trimisul lui Dumnezeu va veni, acela pe care îl numesc unsul. El atunci va povesti totul.
 
 26. Iar Isus îi spune: eu sunt, acela care vorbește cu tine. Nu mai aștepta nimic.
 
@@ -515,7 +515,7 @@ Ioan IV, 4. Și a trebuit odată Isus să treacă prin Samaria.
 
 26. Și au venit la Ioan și i-au spus: iată, tu curăți cu apă, iar Isus numai învață; și toți se duc la el. Ce spui despre el?
 
-27. Ioan a spus: omul nu poate învăța singur nimic, dacă nu-l învață Dumnezeu.
+27. Ioan a spus: omul nu poate de la sine să învețe pe nimeni nimic, dacă nu-l învață Dumnezeu.
 
 28. Cine spune cele pământești, acela pământesc și este, iar dacă cineva vorbește de la Dumnezeu, atunci — de la Dumnezeu.
 
@@ -535,7 +535,7 @@ Luc. VII, 37. Și pe când el ședea în casă la ortodox, a venit o femeie din 
 
 38. Și a îngenuncheat la picioarele lui, a plâns și cu lacrimile îi uda picioarele, i le ștergea cu părul și le turna parfum din flacon.
 
-39. A văzut aceasta ortodoxul și și-a zis în sine: cu greu să fie el profet. Dacă ar fi într-adevăr profet, ar ști ce fel de femeie îi spală picioarele, ar ști că aceasta este — o necredincioasă, și nu i-ar îngădui să se atingă de el.
+39. A văzut aceasta ortodoxul și și-a zis în sine: greu de crezut că el e profet. Dacă ar fi într-adevăr profet, ar ști ce fel de femeie îi spală picioarele, ar ști că aceasta este — o necredincioasă, și nu i-ar îngădui să se atingă de el.
 
 40. Isus a ghicit, s-a întors spre el și spune: să-ți spun ce gândesc? — Spune, — zice.
 
