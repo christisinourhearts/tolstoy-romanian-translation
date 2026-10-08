@@ -1,0 +1,29 @@
+{
+  "batch": "R002",
+  "unit": "R002.01",
+  "source_path": "corpus/works/v24_801_938_Kratkoe_izlozhenie_Evangelija_Predislovie.md",
+  "source_sha256": "87ff4a14066b3250011bb748bb10f8fc754e5eef251af4b75de1320d82abf203",
+  "target_language": "ro",
+  "coverage_method": "exhaustive_source_to_target_pass",
+  "every_substantive_source_passage_checked": true,
+  "reverse_target_to_source_scan": true,
+  "known_omissions": [],
+  "known_unsupported_additions": [],
+  "names_numbers_dates_checked": true,
+  "structure_checked": true,
+  "source_suspected": false,
+  "ambiguities_or_notes": [
+    "Translated section by section (preface, introduction, twelve chapters, conclusion) directly from the audited Russian (SHA-256 verified). No English companion existed: the English translation of this unit was being made in parallel, so no alignment check against English was possible or used (D0002).",
+    "Mechanical alignment: 138/138 page markers in identical sequence (only 5 stand on their own line; the other 133 open or fall inside a paragraph and were kept at the corresponding point in the sentence); 1627/1627 text paragraphs and headings (1632 non-blank lines with the 5 marker-only lines); the blank-line skeleton of the body is identical to the source line for line; all heading levels, numbered lists, the two-column Lord's Prayer table, italics and the editorial «[а]» kept.",
+    "Numbers and references: a per-paragraph scan compared every Arabic digit string and Roman numeral in source and target; the only differences are Romanian clitics (I-, L-) read as numerals and the Cyrillic І in «І-й главы». Verse numbers, sums (500/50 coins, 100/50 and 60/20 in the steward parable, a million rubles and 50 kopecks, 30 and 300 rubles, 300 grivnas, 200 denarii, ten talents, 10,000/20,000), ages (12, 30, 38, 50 years), 40 days, 46 years, 1800 years, 1880, 50,000 variant readings, 100 years, 200 years are all carried over.",
+    "A per-paragraph word-ratio scan (median 1.16 Romanian/Russian) flagged no paragraph that turned out to be incomplete on inspection; the lowest ratios are compact Romanian renderings of «о том, чтобы» constructions.",
+    "Terminology (see TERMINOLOGY.md, D0006-D0008): разумение = înțelegere throughout, with понимать/понять rendered «a pricepe» where both occur together (Introduction, ch. VI 28); дух = spirit, but the church dogma «св. дух» in the preface = «sf. duh», and the idiom «испустил дух» = «și-a dat duhul»; соблазн = ispită, искушение = ispitire (the Slavonic petition in the ch. X heading keeps the liturgical «ispită»); сын человеческий = fiul omului; царство небесное = împărăția cerului; воля отца = voia tatălui; благо and добро both = bine.",
+    "Tolstoy's own Gospel renderings are translated from his Russian, including his paraphrase of the Lord's Prayer in ch. IV; only the quoted Church Slavonic petitions (preface table and chapter headings) follow the Romanian liturgical wording closely, word for word with the Slavonic (D0007).",
+    "Capitalisation follows the source (отец/Отец, Бог/бог, «богу» in the conclusion). Tolstoy's anachronisms kept: православные = ortodocșii, старообрядцы = staroverii, церковь (the Temple, Lk 2:46) = biserică, темный (the man born blind, Jn 9) = întunecat / просветился = s-a luminat, березовое семечко = sămânță de mesteacăn.",
+    "Coarse wording kept at the source register: «из задницы с калом» (Mk 7:19), «выблядки» (Jn 8:41 = «copii de curvă»).",
+    "Source issues: thirty-two recorded findings, mostly non-substantive slips (stray full stops, missing spaces, wrong letters), misprinted references (e.g. «Марк. XIX, 18», «Мф. XXVI, 20» for Mt 27) kept as printed, the French quotation with «n’avaitrien», «Christi», «chritien», and one possible misreading («вражды» for «жажды», Jn 6:35) recorded in project/qa/source_suspected/.",
+    "Typography: comma-below ș/ț throughout (scan: no cedilla forms); no Cyrillic left in the body; Romanian „…” quotes; em-dash dialogue as in the source.",
+    "Process note: translated, audited, revised and edited by the same model in one working context; not an independent or human verification."
+  ],
+  "result": "PASS"
+}
