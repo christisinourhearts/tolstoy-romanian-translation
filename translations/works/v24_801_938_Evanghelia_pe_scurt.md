@@ -1955,7 +1955,7 @@ Ca să nu te gândești la răsplăți și la înălțarea ta, trebuie să înț
 
 Trebuie să înțelegi în ce stă viața adevărată. Viața adevărată se arată întotdeauna prin aceea că cel pierdut se întoarce la ai săi, că cel care dormea se trezește. Oamenii care au viața adevărată, care s-au întors la principiul lor, dacă au viața adevărată, nu se pot socoti omenește cine e mai bun și cine e mai rău, ci, fiind părtași la viața tatălui, se pot numai bucura de întoarcerea celui pierdut la tatăl. Dacă un fiu, rătăcind de pe drum și plecând de la tată, s-ar căi și s-ar întoarce la tatăl, oare ceilalți fii ai tatălui ar putea pizmui bucuria tatălui și să nu se bucure de întoarcerea fratelui?
 
-Ca să crezi în învățătură, ca să-ți schimbi viața și să împlinești învățătura, nu sunt necesare dovezi exterioare, nici făgăduința răsplăților, ci este necesară înțelegerea limpede a ceea ce este viața adevărată. Dacă oamenii cred că sunt stăpânii cu deplină putere ai vieții, că viața le este dată pentru desfătarea trupească, atunci, limpede, orice faptă de jertfă pentru altul li se va părea o faptă vrednică de răsplată, și fără răsplată nu vor ceda nimic. Dacă de la dijmașii care au uitat că li s-a dat livada cu condiția să-i dea roadele stăpânului s-ar cere dijma fără răsplată, ei l-ar alunga pe strângătorul dijmei, și dacă li s-ar mai aminti iar și iar de dijmă, l-ar ucide. Așa privesc și acei oameni care se recunosc stăpâni ai vieții și nu înțeleg că viața este darul înțelegerii, care cere împlinirea voii sale. Ca să crezi și să faci, trebuie să înțelegi că omul nu poate face nimic singur, că dacă își dă viața trupească pentru bine, el nu face nimic pentru care ar trebui să fie mulțumit și răsplătit. Trebuie să înțelegi că, făcând binele, omul face numai ceea ce este dator, ceea ce nu poate să nu împlinească. Numai înțelegându-și astfel viața, omul poate crede așa încât să facă adevăratele fapte ale binelui.
+Ca să crezi în învățătură, ca să-ți schimbi viața și să împlinești învățătura, nu sunt necesare dovezi exterioare, nici făgăduința răsplăților, ci este necesară înțelegerea limpede a ceea ce este viața adevărată. Dacă oamenii cred că sunt stăpânii cu deplină putere ai vieții, că viața le este dată pentru desfătarea trupească, atunci, limpede, orice faptă de jertfă pentru altul li se va părea o faptă vrednică de răsplată, și fără răsplată nu vor ceda nimic. Dacă de la dijmașii care au uitat că li s-a dat livada cu condiția să-i dea roadele stăpânului s-ar cere dijma fără răsplată, ei l-ar alunga pe strângătorul dijmei, și dacă li s-ar mai aminti iar și iar de dijmă, l-ar ucide. Așa privesc și acei oameni care se recunosc stăpâni ai vieții și nu înțeleg că viața este darul înțelegerii, care cere împlinirea voii sale. Ca să crezi și să faci, trebuie să înțelegi că omul nu poate face nimic singur, că dacă își dă viața trupească pentru bine, el nu face nimic pentru care ar trebui să i se mulțumească și să fie răsplătit. Trebuie să înțelegi că, făcând binele, omul face numai ceea ce este dator, ceea ce nu poate să nu împlinească. Numai înțelegându-și astfel viața, omul poate crede așa încât să facă adevăratele fapte ale binelui.
 
 În această înțelegere a vieții constă împărăția cerului pe care o propovăduiesc eu. Această împărăție a cerului este — nevăzută, nu este dintre acelea care se arată undeva așa încât să poată fi arătată cu degetul. Împărăția cerului este în înțelegerea oamenilor. Lumea toată a trăit și trăiește ca mai înainte: mănâncă, beau, fac negoț, se însoară, mor, și alături <!-- vol. 24, p. 887 --> de aceasta, în sufletele oamenilor, trăiește împărăția cerului. Împărăția cerului — aceasta este înțelegerea vieții, ca un copac primăvara, care crește singur din sine.
 
@@ -2021,7 +2021,7 @@ Luc. XV, 8. Și dacă unei femei i se pierde o copeică, doar mătură toată ca
 
 XIV, 8. Și le-a mai spus o pildă despre faptul că nu se pot înălța cei care trăiesc în voia lui Dumnezeu. El a spus: dacă te cheamă la prânz, nu te așeza în colțul din față; altfel te bagi în colțul din față, și vine cineva mai de cinste decât tine, și gazda îți va spune:
 
-9. Ieși de acolo și lasă-l pe acela, care e mai bun decât tine. Atunci te vei rușina mai rău.
+9. Ieși de acolo și lasă-l pe cel care e mai bun decât tine. Atunci te vei rușina mai rău.
 
 10. Ci tu mai bine așază-te pe locul cel mai de pe urmă. Atunci gazda te va găsi și te va chema la locul de cinste; atunci vei avea cinste.
 
@@ -2133,13 +2133,13 @@ Mt. XXV, 1. Împărăția cerului iată cu ce seamănă: Au ieșit zece fecioare
 
 4. Iar cele deștepte au luat opaițele și untdelemn de rezervă.
 
-5. Până să-l aștepte pe mire, ele au ațipit.
+5. Cât timp îl așteptau pe mire, ele au ațipit.
 
 6. Când a venit mirele,
 
 7. Cele proaste au văzut că au puțin untdelemn.
 
-10. Și s-au dus să caute să cumpere, iar până să umble ele, a venit mirele. Și fecioarele deștepte, care aveau untdelemn, au intrat cu el, și ușile s-au închis.
+10. Și s-au dus să caute să cumpere, iar cât timp umblau ele, a venit mirele. Și fecioarele deștepte, care aveau untdelemn, au intrat cu el, și ușile s-au închis.
 
 Fecioarele trebuiau să meargă numai pentru aceasta, ca să-l întâmpine pe mire cu opaițele, dar ele au uitat că nu aceea e prețios, ca opaițele să ardă, ci ca ele să ardă la vreme. Iar pentru ca ele să ardă, trebuiau să ardă fără încetare. Viața este numai pentru a-l înălța pe fiul omului, iar fiul omului este întotdeauna. El nu este în timp, și de aceea, slujindu-i, trebuie să trăiești în afara timpului, numai în prezent.
 
