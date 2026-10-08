@@ -1328,3 +1328,291 @@ Mat. XII, 15. Și atunci ortodocșii învățați au venit din Ierusalim și s-a
 30. Trebuie să fii una cu spiritul vieții sau împotriva lui. Trebuie să slujești spiritului vieții și al binelui în toți oamenii, și nu numai în tine.
 
 33. Ori socotiți că viața și binele sunt un bine pentru toată lumea, și atunci iubiți viața și binele pentru toți, ori socotiți viața și binele un rău, și atunci nu iubiți viața și binele nici pentru voi; ori socotiți pomul bun și rodul lui bun, ori socotiți pomul rău și rodul lui rău. Pentru că după rod se prețuiește pomul.
+
+## Capitolul VI VIAȚA FALSĂ
+
+### ȘI DE ACEEA, CA SĂ PRIMEASCĂ VIAȚA ADEVĂRATĂ, OMUL TREBUIE SĂ SE LEPEDE PE PĂMÂNT DE VIAȚA FALSĂ A TRUPULUI ȘI SĂ TRĂIASCĂ PRIN SPIRIT. (ȘI PE PĂMÂNT, PRECUM ÎN CER.)
+
+#### CUPRINSUL CAPITOLULUI VI
+
+Pentru viața spiritului nu poate fi deosebire între cei din familie și cei străini.
+
+Isus spune că mama și frații lui nu înseamnă nimic pentru el ca mamă și frați, că îi sunt apropiați numai aceia care împlinesc voia tatălui comun.
+
+<!-- vol. 24, p. 861 --> Fericirea și viața omului nu depind de legăturile de familie, ci de viața spiritului.
+
+Isus spune că fericiți sunt cei care țin înțelegerea tatălui. Pentru omul care trăiește prin spirit nu există casă. Animalele au case, dar omul trăiește prin spirit și de aceea nu poate avea casă. Isus spune că el nu are un loc hotărât pentru el. Pentru împlinirea voii tatălui nu este nevoie de un loc hotărât, ea este cu putință pretutindeni și întotdeauna.
+
+Moartea trupească nu poate fi înfricoșătoare pentru omul care s-a dat voii tatălui, pentru că viața spiritului nu depinde de moartea trupului. Isus spune că acela care crede în viața spiritului nu se poate teme de nimic.
+
+Nicio grijă nu-l poate împiedica pe om să trăiască prin spirit. La cuvintele unui om, că va împlini învățătura lui Isus mai târziu, dar că mai întâi trebuie să-și îngroape tatăl, Isus răspunde: numai morții se pot îngriji de îngroparea morților; iar cei vii trăiesc întotdeauna prin împlinirea voii tatălui.
+
+Grijile pentru treburile familiei și ale casei nu pot împiedica viața spiritului. Acela care se îngrijește de ce va ieși pentru viața lui trupească din împlinirea voii tatălui face același lucru ca plugarul care ară și se uită nu înainte, ci înapoi.
+
+Grijile pentru bucuriile vieții trupești, care li se par oamenilor atât de importante, sunt o închipuire. Singurul lucru adevărat al vieții este vestirea voii tatălui, luarea aminte la ea și împlinirea ei. La mustrarea Martei, că numai ea se îngrijește de cină, iar sora ei Maria, fără s-o ajute, ascultă învățătura, Isus răspunde: în zadar o mustri. Îngrijește-te, dacă ai nevoie de ceea ce dă grija, dar lasă-i pe cei care nu au nevoie de plăceri trupești să facă acel singur lucru care este necesar pentru viață.
+
+Isus spune: acela care vrea să primească viața adevărată, care constă în a împlini voia tatălui, acela trebuie mai întâi de toate să renunțe la dorințele sale personale. Acela nu numai că nu trebuie să-și clădească viața așa cum vrea el, dar trebuie să fie gata în orice ceas să îndure orice lipsuri și suferințe.
+
+Acela care vrea să-și rânduiască viața trupească așa cum vrea el, acela va pierde viața adevărată a împlinirii voii tatălui.
+
+Și nu este niciun folos să agonisești pentru viața trupească, dacă această agoniseală pierde viața spiritului.
+
+Mai mult decât orice pierde viața spiritului: lăcomia de câștig, agonisirea de bogății. Oamenii uită că, oricâte <!-- vol. 24, p. 862 --> bogății și averi ar agonisi, pot muri în orice ceas, și averea lor nu le este necesară pentru viața lor. Moartea atârnă deasupra fiecăruia dintre noi. Boala, omorurile din partea oamenilor, accidentele pot curma viața în orice secundă. Moartea trupească este condiția de neocolit a fiecărei secunde a vieții. Dacă omul trăiește, el trebuie să privească fiecare ceas al vieții sale ca pe o amânare care i-a fost dată din mila cuiva. Și aceasta trebuie ținut minte și nu trebuie să spunem că nu știm aceasta. Știm și prevedem tot ce se întâmplă pe pământ și în cer, iar moartea, care, știm, ne așteaptă în fiecare secundă, pe aceasta o uităm. Iar dacă nu vom uita aceasta, nu ne putem da vieții trupului, nu putem conta pe ea. Ca să urmezi învățătura mea, trebuie să socotești folosul slujirii vieții trupești, voii tale, și folosul împlinirii voii tatălui. Numai acela care a socotit limpede aceasta, numai acela poate fi ucenicul meu. Iar cine va socoti nu va regreta binele închipuit și viața închipuită pentru primirea binelui adevărat și a vieții adevărate. Viața adevărată le este dată oamenilor, și oamenii o cunosc și îi aud chemarea, dar, lăsându-se mereu purtați de grijile de o clipă, se lipsesc de ea. Viața adevărată este asemenea unui ospăț pe care l-a făcut un bogat și la care a poftit oaspeți. El îi cheamă pe oaspeți așa cum glasul spiritului tatălui îi cheamă la sine pe toți oamenii. Dar oaspeții, unii s-au ocupat de negoț, alții — de gospodărie, alții — de treburile familiei și nu s-au dus la ospăț; numai săracii, care nu au griji trupești, s-au dus la ospăț și au primit fericirea. Tot așa și oamenii, abătuți de grijile vieții trupești, se lipsesc de viața adevărată. Acela care nu va renunța cu totul la toate grijile și temerile vieții trupești nu poate împlini voia tatălui, pentru că nu poți sluji puțin ție și puțin tatălui. Trebuie să socotești dacă e folositor să-i slujești trupului tău, dacă îți poți rândui viața cum vrei tu? Trebuie să faci același lucru pe care îl face omul când zidește o casă sau se pregătește de război. El va socoti dacă poate duce la capăt, dacă poate birui. Și dacă vede că nu poate, atunci nu-și mai irosește degeaba nici trudele, nici oștile. Altfel le va pierde degeaba și va fi de râsul oamenilor. Dacă s-ar putea rândui viața trupească așa cum vrei, atunci ar trebui să slujești trupului. Dar, fiindcă nu se poate, mai bine să lași tot ce e trupesc și să slujești spiritului. Altfel nu va fi nici una, nici alta. Viața trupească n-o vei rândui, iar viața spiritului o vei pierde. Și de aceea, ca să împlinești voia tatălui, trebuie să te lepezi cu totul de viața trupească.
+
+<!-- vol. 24, p. 863 --> Viața trupească — aceasta este bogăția străină, închipuită, încredințată nouă, pe care trebuie s-o folosim așa încât să primim bogăția noastră adevărată.
+
+Dacă la un om bogat va trăi un vechil și va ști că, oricât i-ar sluji stăpânului, stăpânul îl va concedia și îl va lăsa cu nimic, atunci acest vechil va lucra cu minte dacă, cât timp mai cârmuiește bogăția străină, va face bine oamenilor. Atunci, chiar dacă stăpânul îl va da afară, cei cărora le-a făcut bine îl vor primi și îl vor hrăni. Același lucru trebuie să-l facă oamenii cu viața lor trupească. Viața trupească este acea bogăție străină pe care ei o cârmuiesc numai pentru o vreme. Dacă vor folosi bine această bogăție străină, își vor primi bogăția lor adevărată.
+
+Dacă nu ne vom da averea noastră falsă, nu ni se va da cea adevărată. Nu se poate sluji vieții false a trupului și spiritului; trebuie să slujești uneia sau celuilalt. Nu se poate sluji bogăției și lui Dumnezeu. Ceea ce este mare înaintea oamenilor, aceea este — urâciune înaintea lui Dumnezeu. Înaintea lui Dumnezeu bogăția este un rău. Bogatul e vinovat chiar prin aceea că mănâncă mult și cu lux, când săracii flămânzesc la ușile lui. Și toți știu că proprietatea pe care nu o dai altora este neîmplinirea voii tatălui.
+
+S-a apropiat odată de Isus un ortodox, căpetenie și bogat, și a început să se laude că a împlinit toate poruncile legii. Isus i-a amintit că este o poruncă de a-i iubi pe toți oamenii ca pe sine însuși, că în aceasta constă voia tatălui. Căpetenia a spus că a împlinit-o și pe aceasta. Atunci Isus i-a spus: nu este adevărat: dacă ai vrea să împlinești voia tatălui, n-ai avea proprietate. Nu se poate împlini voia tatălui dacă ai o avere a ta pe care nu o dai altora.
+
+Și Isus le-a spus ucenicilor: oamenilor li se pare că fără proprietate nu se poate trăi, dar eu vă spun că viața adevărată constă în a da altora ce e al tău.
+
+Un om, Zaheu, a auzit învățătura lui Isus și a crezut în ea și, poftindu-l pe Isus în casa sa, i-a spus: dau jumătate din avere săracilor și voi da împătrit oricui l-am nedreptățit. Și Isus a spus: iată un om care împlinește voia tatălui, pentru că nu este o stare în care să fie împlinită voia lui Dumnezeu, ci toată viața noastră este împlinirea ei, iar acest om împlinește voia tatălui.
+
+Binele nu se poate măsura cu nimic; nu se poate spune cine a făcut mai mult, cine mai puțin. Văduva care dă ultimul sfert de copeică <!-- vol. 24, p. 864 --> dă mai mult decât bogatul care dă mii. El nu poate fi măsurat nici prin ce este folositor și nefolositor.
+
+Pildă despre cum trebuie făcut binele să fie femeia aceea căreia i s-a făcut milă de Isus și i-a turnat, fără socoteală, pe picioare mir scump de 300 de ruble. Iuda a spus că ea a făcut un lucru prostesc, că din aceștia s-ar fi putut hrăni mulți. Dar Iuda era hoț, el a mințit și, vorbind de folosul trupesc, nu se gândea la săraci. Nu folosul trebuie, nu cantitatea, ci trebuie întotdeauna, în orice clipă, împlinirea voii tatălui — întotdeauna, în orice clipă, să-i iubești pe alții și să le dai ce e al tău.
+
+Luc. VIII, 19; Mat. XII, 46. Și au venit odată la Isus mama și frații lui și nu puteau nicicum să se vadă cu el, pentru că era mult popor în jurul lui Isus.
+
+Luc. VIII, 20. Și un om i-a văzut, s-a apropiat de Isus și spune: ai tăi, mama și frații, stau afară, vor să se vadă cu tine.
+
+21. Și Isus a spus: mama mea și frații mei sunt cei care au înțeles voia tatălui și o împlinesc.
+
+Luc. XI, 27. Și o femeie a spus: fericit este pântecele care te-a purtat și sânii pe care i-ai supt.
+
+28. Isus a spus la aceasta: fericiți sunt întotdeauna numai cei care au priceput înțelegerea tatălui și o păstrează.
+
+Luc. IX, 57. Și un om i-a spus lui Isus: voi merge după tine, oriunde te-ai duce.
+
+58. Și Isus i-a spus la aceasta: nu ai unde să mergi după mine: eu nu am nici casă, nici loc unde să trăiesc. Numai fiarele au culcușuri și vizuini, iar omul este acasă pretutindeni, dacă trăiește prin spirit.
+
+Marc. IV, 35. Și s-a întâmplat odată ca Isus să plutească cu ucenicii într-o barcă. El a spus: să trecem pe partea cealaltă.
+
+37. S-a stârnit o furtună pe lac și a început să-i acopere cu apă, încât cât pe ce să-i scufunde.
+
+38. Iar el zăcea la pupă și dormea. Ei l-au trezit și spun: învățătorule! ce, ori ți-e totuna că pierim?
+
+40. Și când furtuna s-a potolit, el a spus: de ce sunteți voi așa de fricoși? Nu este în voi credință în viața spiritului.
+
+Luc. IX, 59. Unui om Isus i-a spus: urmează-mă. Și omul a spus: am un tată bătrân; poruncește-mi să-l îngrop mai întâi, atunci voi merge după tine.
+
+<!-- vol. 24, p. 865 --> 60. Și i-a spus Isus: lasă-i pe morți să-i îngroape pe morți, iar tu, dacă vrei să fii viu, împlinește voia tatălui și vestește-o.
+
+61. Și încă un om a spus: vreau să fiu ucenicul tău și voi împlini voia tatălui cum poruncești tu, dar îngăduie-mi mai întâi să-i rânduiesc pe cei de acasă.
+
+62. Și Isus i-a spus: dacă plugarul se uită înapoi, nu poate ara. Oricât te-ai uita înapoi, cât timp te uiți înapoi, nu se poate ara. Trebuie să uiți de toate, în afară de brazda pe care o tragi, numai atunci se poate ara. Dacă tu chibzuiești despre ce va ieși pentru viața trupească, atunci n-ai înțeles viața adevărată și nu poți trăi prin ea.
+
+Luc. X, 38. După aceasta s-a întâmplat odată că Isus a intrat cu ucenicii într-un sat. Și o femeie, Marta, l-a poftit la ea în casă.
+
+39. Și Marta avea o soră, Maria, și ea s-a așezat la picioarele lui Isus și îi asculta învățătura.
+
+40. Iar Marta se frământa ca să fie un ospăț bun. Și s-a apropiat Marta de Isus și spune: nici nu-ți pasă că sora mea m-a lăsat singură să slujesc. Spune-i să lucreze și ea cu mine.
+
+41. Și drept răspuns i-a spus Isus: Marto, Marto, te îngrijești și te frămânți pentru multe treburi, dar un singur lucru este necesar.
+
+42. Și Maria a ales acel singur lucru care este necesar și pe care nimeni nu i-l va lua. Pentru viață este necesară numai o singură hrană a spiritului.
+
+Luc. IX, 23. Și a spus Isus tuturor: cine vrea să meargă după mine, acela să renunțe la voia sa și să fie gata de orice lipsuri și suferințe ale trupului în fiecare ceas; numai atunci poate merge după mine.
+
+24. Pentru că acela care vrea să se îngrijească de viața sa trupească, acela va pierde viața adevărată. Iar cine, chiar dacă își va pierde viața trupească, împlinind voia tatălui, acela va salva viața adevărată.
+
+25. Pentru că ce folos are omul, dacă și toată lumea o va lua pentru sine, iar viața lui și-o va pierde sau și-o va vătăma.
+
+Luc. XII, 15. Și a spus Isus: păziți-vă deci de bogăție, pentru că viața ta nu vine din aceea că ai mai mult decât alții.
+
+16. Era un om bogat, și i s-a născut multă pâine.
+
+17, 18. Și se gândește el în sine: ia să-mi prefac hambarele, să zidesc altele mari și să strâng acolo toate bogățiile mele.
+
+<!-- vol. 24, p. 866 --> 19. Și voi spune sufletului meu: iată, suflete, ai de toate din belșug, odihnește-te, mănâncă, bea și trăiește după plăcerea ta.
+
+20. Și i-a spus Dumnezeu: prostule, în noaptea aceasta îți vor lua sufletul, și tot ce ai strâns va rămâne altora.
+
+21. Așa se întâmplă cu oricine pregătește pentru viața trupească, și nu trăiește în Dumnezeu.
+
+Luc. XIII, 2. Și le-a spus Isus: iată, voi povestiți că Pilat i-a ucis pe galileeni. Ce, oare galileenii aceia erau cu ceva mai răi decât alți oameni, de li s-a întâmplat aceasta?
+
+3. Câtuși de puțin. Toți suntem la fel și toți vom pieri la fel, dacă nu vom găsi mântuire de moarte.
+
+4. Sau cei optsprezece oameni pe care i-a strivit turnul când s-a prăbușit, oare erau ei deosebiți, mai răi decât toți ceilalți locuitori ai Ierusalimului?
+
+5. Câtuși de puțin. Dacă nu ne vom mântui de moarte, azi-mâine vom pieri întocmai la fel.
+
+6. Dacă n-am pierit încă, precum aceia, atunci trebuie să ne gândim despre noi iată cum: la un om crește în grădină un măr. Vine stăpânul în grădină, s-a uitat la măr și vede: nu e rod pe el.
+
+7. Și stăpânul îi spune grădinarului: iată, de trei ani vin, și mărul acesta tot sterp e. Trebuie tăiat, că altfel strică locul degeaba.
+
+8. Iar grădinarul spune: să mai așteptăm, stăpâne, lasă-mă să-l sap de jur împrejur, să-i pun gunoi, și să vedem la vară. Poate că va da rod. Iar dacă nici la vară nu va da, ei, atunci îl tăiem.
+
+Așa și noi; cât timp suntem vii prin trup și nu aducem rodul vieții spiritului, suntem și noi un măr neroditor. Numai din mila cuiva suntem lăsați încă până la vară. Iar dacă nu vom aduce rod, vom pieri la fel ca acela care și-a zidit hambarul; ca galileenii, ca cei optsprezece striviți de turn și cum pier toți cei care nu aduc rod, murind pentru totdeauna de moarte.
+
+Luc. XII, 54. Ca să înțelegi aceasta, nu trebuie nicio înțelepciune, oricine vede aceasta singur. Doar nu numai în treburile casei, ci și în ceea ce se petrece în toată lumea, știm să judecăm și să ghicim dinainte. Dacă vântul bate dinspre apus, spunem — a ploaie, — și așa și este.
+
+55. Iar dacă vântul bate dinspre miazăzi, spunem — a vreme senină, — și așa și este.
+
+56. Ce, vremea știm s-o cunoaștem, iar aceea nu putem s-o ghicim dinainte, că toți vom muri și vom pieri și că singura mântuire pentru noi este — viața spiritului, împlinirea voii lui.
+
+<!-- vol. 24, p. 867 --> Luc. XIV, 25. Și mergea cu Isus mult popor, și el le-a spus încă o dată tuturor:
+
+26. Acela care vrea să fie ucenicul meu, acela să socotească drept nimic pe tatăl, și pe mama, și pe femeie, și pe copii, și pe frați, și pe surori, și toată averea sa, și să fie gata în orice ceas la orice.
+
+27. Și numai acela care face ce fac eu, numai acela urmează învățătura mea și numai acela se mântuiește de moarte.
+
+28. Pentru că oricine, înainte de a începe ceva, va socoti: este folositor ceea ce face, și dacă este folositor, face, iar dacă nu e folositor, lasă. Oricine zidește o casă doar se așază mai întâi și socotește: câți bani trebuie, câți are și dacă îi vor ajunge ca s-o termine.
+
+29. Ca să nu se întâmple că a început să zidească și n-a terminat, și oamenii râd.
+
+30. Tot așa și acela care vrea să trăiască viața trupească trebuie mai întâi să socotească: poate el duce la capăt ceea ce îl ocupă?
+
+31. Și orice împărat, dacă vrea să se războiască, se va gândi mai întâi: poate el cu zece mii să pornească la război împotriva a douăzeci de mii.
+
+32. Dacă va socoti că nu poate, atunci va trimite soli și va face pace, și nu se va mai războia. Tot așa și orice om, înainte de a se da vieții trupești, să se gândească: poate el să se războiască împotriva morții? sau ea e mai tare decât el? și atunci nu e mai bine pentru el să facă pace dinainte.
+
+33. Așa trebuie fiecare dintre voi să se lămurească mai întâi cu ceea ce socoate al său: familia, banii, averea. Și când va socoti ce folos este din aceasta și va înțelege că nu este niciunul, numai atunci poate fi ucenicul meu.
+
+15. Și auzind aceasta, un om a spus: bine, dacă este viața spiritului. Dar dacă vom da totul, iar viața aceasta nici nu este.
+
+16. La aceasta Isus a spus: nu este adevărat, oricine cunoaște viața spiritului. Voi toți știți că împlinirea voii tatălui dă viață. Voi știți aceasta, dar nu faceți aceasta nu pentru că vă îndoiți, ci pentru că vă abateți de la viața adevărată prin griji false și vă tot scuzați de ea. Iată ce faceți voi: un gospodar a pregătit un prânz și a trimis să-i cheme pe oaspeți, dar oaspeții au început să refuze.
+
+18. Unul a spus: am cumpărat pământ, trebuie să mă duc să-l văd.
+
+19. Altul a spus: am cumpărat boi, trebuie să-i încerc.
+
+20. Al treilea a spus: m-am însurat și o să fac nunta.
+
+<!-- vol. 24, p. 868 --> 21. Și au venit argații și i-au spus gospodarului că nu vine nimeni. Gospodarul a trimis atunci argații să-i cheme pe săraci. Săracii n-au refuzat și au venit.
+
+22. Și când au venit, a mai rămas încă loc.
+
+23. Și gospodarul a trimis să mai cheme și spune: du-te, înduplecă-i pe toți să vină la mine la prânz și să fie la mine mai mult popor; iar cei care au refuzat din lipsă de vreme, aceia n-au ajuns la prânz.
+
+Luc. XVI, 1. Toți știu că împlinirea voii tatălui dă viață, dar nu merg pentru că îi abate amăgirea bogăției.
+
+Acela care dă bogăția falsă, vremelnică, pentru viața adevărată în voia tatălui, va face același lucru pe care îl va face un vechil deștept.
+
+Un om era vechilul unui stăpân bogat, și vede vechilul că, iată-iată, stăpânul îl va alunga și vechilul va rămâne fără pâine și fără adăpost.
+
+3. Și și-a zis în sine vechilul: ia să fac așa: voi împărți pe ascuns din ce e al stăpânului țăranilor, le voi scădea datoriile, și atunci, dacă stăpânul mă va alunga, țăranii își vor aminti de binele meu și nu mă vor lăsa.
+
+5. Și așa a și făcut vechilul: i-a chemat pe țărani, datornicii stăpânului, și le-a rescris chitanțele.
+
+6. Cine datora 100 — a scris 50; cine 60 — a scris 20, și altora la fel.
+
+8. Și iată, a aflat stăpânul de aceasta și își spune: ei, ce? doar a făcut cu minte. Altfel ar fi trebuit să umble cu traista. Mie mi-a făcut pagubă, dar după socoteală a făcut cu minte. Pentru că în viața trupească toți înțelegem în ce stă socoteala dreaptă, dar în viața spiritului nu vrem să înțelegem.
+
+9. Așa trebuie să facem și noi cu bogăția nedreaptă și falsă. S-o dăm ca să primim viața spiritului.
+
+10. Și dacă regretăm asemenea fleacuri, cum e bogăția, pentru viața spiritului, atunci nici nu ni se va da ea.
+
+11. Dacă nu vom da bogăția falsă, nu ni se va da nici viața noastră proprie.
+
+13. Nu se poate sluji deodată la doi domni: lui Dumnezeu și bogăției; voii tatălui și voii tale. Ori unuia, ori celuilalt.
+
+14. Și au auzit aceasta ortodocșii. Iar ortodocșii iubeau bogăția, și își băteau joc de Isus.
+
+<!-- vol. 24, p. 869 --> 15. Iar el le-a spus: voi credeți că, pentru că vă cinstesc oamenii pentru bogăție, sunteți într-adevăr vrednici de cinste? Nu, Dumnezeu nu se uită la ce e pe dinafară, ci se uită la inimă. Ceea ce e înalt înaintea oamenilor, aceea e vărsătură înaintea lui Dumnezeu.
+
+16. Acum împărăția cerului este pe pământ, și mari sunt cei care intră în ea. Iar în ea intră nu cei bogați, ci cei care nu au nimic. Și aceasta a fost întotdeauna așa și după legea voastră, și după Moise, și după profeți la fel.
+
+17. Ascultați ce sunt după credința voastră — bogații și săracii.
+
+19. Era un om bogătaș. Se gătea, petrecea, se veselea în fiecare zi.
+
+20. Și era un vagabond, Lazăr, plin de râie.
+
+21. Și Lazăr venea în curte la bogătaș, gândindu-se: n-or rămâne niște resturi de la bogătaș; dar nici resturile nu-i ajungeau lui Lazăr: câinii bogătașului mâncau totul, ba încă îi lingeau lui Lazăr bubele.
+
+22. Și au murit amândoi — și Lazăr, și bogătașul.
+
+23. Și iată, în iad, bogătașul l-a văzut de departe-departe pe Avraam, și se uită — și Lazăr cel râios stă cu el.
+
+24. Bogătașul îi spune: părinte Avraame, uite, cu tine stă Lazăr cel râios: el zăcea la mine sub gard. Pe tine nu îndrăznesc să te supăr. Trimite-l la mine pe Lazăr cel râios, să-și ude și el degetul în apă și să-mi răcorească gâtlejul. Căci ard în foc.
+
+25. Iar Avraam spune: de ce să ți-l trimit pe Lazăr în foc? Tu, în lumea aceea, ce ai dorit, aceea ai și avut, iar Lazăr numai necaz a văzut, așa că acum trebuie să se bucure.
+
+26. Și chiar dacă aș vrea să fac aceasta, nu se poate, căci între noi și voi este o prăpastie mare, și nu poate fi trecută. Noi suntem vii, iar voi sunteți morți.
+
+27. Atunci bogătașul spune: ei, atunci, părinte Avraame, trimite-l pe Lazăr cel râios măcar la mine acasă.
+
+28. Am cinci frați, mi-e milă de ei. Să le povestească totul și să le arate cât de vătămătoare este bogăția. Altfel să nu ajungă și ei în chinul acesta.
+
+29. Iar Avraam spune: ei știu și așa că e vătămătoare. Le-au spus-o și Moise, și toți profeții.
+
+30. Iar bogătașul spune: tot ar fi mai bine dacă ar învia cineva din morți și ar veni la ei, și-ar veni mai bine în fire.
+
+30. Iar Avraam a spus: dacă nu-i ascultă pe Moise și pe profeți, chiar dacă va învia un mort, nici pe acela nu-l vor asculta.
+
+<!-- vol. 24, p. 870 --> Marc. X, 17. Că trebuie să împarți cu fratele și să faci bine oamenilor, aceasta o știu toți. Și toată legea lui Moise, și toți profeții numai aceasta au spus-o. Voi știți aceasta, dar nu puteți s-o faceți, pentru că iubiți bogăția.
+
+Și s-a apropiat de Isus o căpetenie bogată dintre ortodocși și i-a spus: tu, învățătorule bun, ce să fac ca să primesc viața veșnică?
+
+18. Isus a spus: de ce mă numești bun? Bun este numai tatăl. Iar dacă vrei să ai viață, împlinește poruncile.
+
+19. Căpetenia spune: porunci sunt multe — care? Iar Isus spune: să nu ucizi, să nu desfrânezi, să nu furi, să nu minți, și încă să-l cinstești pe tatăl tău, să-i împlinești voia și să-l iubești pe aproapele ca pe tine însuți.
+
+20. Iar căpetenia ortodoxă spune: toate aceste porunci le împlinesc din copilărie, dar eu întreb ce mai trebuie făcut după învățătura ta?
+
+21. Isus s-a uitat la el, la haina lui bogată, a zâmbit și spune: un singur lucru mic nu l-ai dus la capăt, n-ai împlinit ceea ce spui. Dacă vrei să împlinești aceste porunci: să nu ucizi, să nu desfrânezi, să nu furi și să nu minți și, mai ales, porunca — iubește-l pe aproapele ca pe tine, atunci vinde chiar acum toată averea și dă-o săracilor, atunci vei împlini voia tatălui.
+
+22. A auzit aceasta căpetenia, s-a încruntat și s-a îndepărtat, pentru că îi părea rău de averea sa.
+
+23. Și Isus le-a spus ucenicilor: iată, vedeți că nicicum nu se poate să fii bogat și să împlinești voia tatălui.
+
+24. Ucenicii s-au îngrozit de aceste cuvinte. Iar Isus a repetat încă o dată și spune: da, copii, nu se poate ca acela care are o avere a sa să fie în voia tatălui.
+
+25. Mai degrabă va trece cămila prin urechea acului decât să împlinească voia tatălui acela care se bizuie pe bogăție.
+
+26. Și ei s-au îngrozit și mai tare și spun: atunci cum? Nici viața nu ți-o poți păzi.
+
+27. Iar el spune: omului i se pare că fără proprietate nu-și poate păzi viața, dar Dumnezeu și fără proprietate păzește viața omului.
+
+Luc. XIX, 1. Odată Isus trecea prin orașul Ierihon.
+
+2. Și era în acest oraș o căpetenie a strângătorilor de dări, un bogătaș, și îl chema Zaheu.
+
+<!-- vol. 24, p. 871 --> 3. Acest Zaheu auzise despre învățătura lui Isus și crezuse în ea. Și când a aflat că Isus este în Ierihon, a vrut să-l vadă. Popor era în jur atât de mult, că nu se putea răzbate până la el. Iar Zaheu era mic de statură.
+
+4. Atunci el a alergat înainte și s-a urcat într-un copac, ca să se vadă cu Isus când va trece pe lângă copac.
+
+5. Și într-adevăr, trecând pe lângă, Isus l-a văzut și, aflând că el crede în învățătura lui, a spus: coboară din copac și du-te acasă, voi veni la tine.
+
+6. Zaheu a coborât, a alergat acasă, i-a pregătit lui Isus o primire și l-a primit cu bucurie.
+
+7. Poporul a început să judece și să spună despre Isus: iată, s-a dus în casă la un strângător de dări, la un pungaș.
+
+8. Iar în vremea aceasta Zaheu i-a spus lui Isus: iată, doamne, ce voi face. Jumătate din avere o voi da săracilor, iar din rest le voi plăti împătrit tuturor celor pe care i-am nedreptățit.
+
+9. Și a spus Isus: iată, te-ai și mântuit: erai mort și ai devenit viu, erai pierdut și te-ai găsit, pentru că tu prin faptă, ca Avraam când a vrut să-și junghie fiul, ți-ai arătat credința.
+
+10. Pentru că în aceasta stă toată viața omului, să caute și să mântuiască în sufletul său ceea ce piere. Jertfa nu se poate măsura după mărimea ei.
+
+Luc. XII, 41. S-a întâmplat odată că Isus ședea cu ucenicii în fața cutiei de daruri. În cutie oamenii puneau din averea lor pentru Dumnezeu. Și se apropiau de cutie oameni bogați și puneau mult.
+
+42. Și s-a apropiat o săracă, o văduvă, și a pus două sferturi de copeică.
+
+43. Și Isus a arătat spre ea și le-a spus ucenicilor: iată, vedeți că această văduvă, săracă, a pus două sferturi de copeică; și ea a pus mai mult decât toți.
+
+44. Pentru că aceia puneau ceea ce nu le trebuia pentru viață, iar aceasta a pus tot ce avea, toată viața ei a pus-o.
+
+Mat. XXVI, 6. S-a întâmplat ca Isus să fie în casa lui Simon cel râios.
+
+7. Și a intrat în casă o femeie. Și avea această femeie un ulcior cu mir scump, curat, de 300 de ruble. Isus le spusese ucenicilor că moartea lui este aproape. A auzit aceasta femeia și i s-a făcut milă de el, și a vrut să-i arate iubirea ei și să-i ungă capul cu mir. Și a uitat de toate, și cât costă mirul, și a spart tot ulciorul, și i-a uns capul și picioarele, și a vărsat tot mirul.
+
+<!-- vol. 24, p. 872 --> 8. Și au început ucenicii să judece între ei că rău a făcut ea. Și Iuda, cel care l-a vândut mai târziu pe Isus, a spus: iată câtă bunătate s-a pierdut degeaba!
+
+9. S-ar fi putut vinde mirul acesta cu trei sute de ruble și câți săraci s-ar fi putut ajuta! Și au început ucenicii s-o mustre pe femeie, și ea s-a tulburat și nu știa dacă a făcut bine sau rău.
+
+10. Atunci Isus le-a spus: în zadar o tulburați pe femeie: ea a făcut cu adevărat un bine, și în zadar pomeniți de săraci.
+
+11. Dacă vreți să le faceți bine săracilor, faceți — ei sunt întotdeauna. De ce să vorbiți atunci despre ei? Dacă vă e milă de săraci, duceți-vă, fie-vă milă de ei, faceți-le bine; iar ei i-a fost milă de mine și a făcut un bine adevărat, pentru că a dat tot ce avea. Cine dintre voi poate ști ce este necesar și ce nu este necesar? De unde știți voi că nu era necesar să se verse mirul pe mine? Ea m-a uns cu mir așa, măcar ca să-mi pregătească trupul pentru îngropare, și pentru aceasta este necesar.
+
+13. Ea a împlinit cu adevărat voia tatălui, s-a uitat pe sine și i-a fost milă de altul, a uitat socotelile trupești și a dat tot ce avea.
+
+Mat. XXI, 28. Și Isus a spus: învățătura mea este împlinirea voii tatălui, iar voia tatălui se poate împlini numai prin faptă, și nu prin cuvinte.
+
+Dacă un fiu, la poruncile tatălui, tot spune: „ascult, ascult”, dar nu face ceea ce poruncește tatăl, atunci doar nu împlinește voia tatălui.
+
+29. Iar dacă un alt fiu, deși va spune: „nu vreau să ascult”, dar apoi se va duce și va face după porunca tatălui, atunci doar a împlinit voia tatălui. Așa e și la oameni: nu acela este în voia tatălui care spune: eu sunt în voia tatălui, — ci acela care face ceea ce vrea tatăl.
