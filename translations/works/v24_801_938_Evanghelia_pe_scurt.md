@@ -601,7 +601,7 @@ Ucenicii lui Isus îl întreabă pe Isus în ce constă acea împărăție a lui
 
 La întrebarea când va veni împărăția lui Dumnezeu, Isus spune că împărăția lui Dumnezeu este nevăzută și nu se află în ceea ce este exterior, ci este în sufletele oamenilor. Începutul și sfârșitul a toate — sunt în sufletul omului.
 
-Și lămurind sensul împărăției lui Dumnezeu, Isus spune: Fiecare om, pe lângă viața sa trupească, pe lângă zămislirea, înțeleasă de el, de la un tată trupesc în pântecele unei mame trupești, are conștiința unui spirit liber, rațional și neatârnat de trup. Tocmai acest spirit, nesfârșit și ieșit din nesfârșit, este principiul a toate și ceea ce numim noi Dumnezeu. Îl cunoaștem numai în noi. Acest spirit este principiul vieții noastre, și el trebuie pus mai presus de toate, prin el trebuie să trăim. Făcând din acest spirit temelia vieții, primim viața adevărată, nesfârșită. Tatăl spirit care a trimis acest spirit în oameni nu putea să-l trimită ca să-i înșele pe oameni, ca oamenii, având conștiința vieții nesfârșite în ei, s-o piardă. Dacă există în om acest spirit nesfârșit, atunci el trebuie să dea viață nesfârșită. Și de aceea omul care își pune viața în acest spirit are viață nesfârșită. Omul care nu-și pune viața în acest spirit nu are viață. Oamenii își pot alege singuri viața și moartea. Viața este în spirit, moartea în trup. Viața spiritului este binele, lumina; viața trupului — răul, întunericul. A crede în spirit — înseamnă a săvârși faptele binelui; a nu crede — înseamnă a săvârși faptele răului. Binele este viața, răul este moartea. Pe Dumnezeu, creatorul exterior, principiul tuturor principiilor, nu-l cunoaștem. Tot ce ne putem închipui despre el este că el a semănat în oameni spiritul, și a semănat cum seamănă semănătorul, peste tot, fără să aleagă pământul, și sămânța care a căzut în pământ bun crește, iar în cel nepotrivit — piere. Numai spiritul dă viață oamenilor, <!-- vol. 24, p. 833 --> și de la oameni depinde s-o păstreze sau s-o piardă. Răul nu există pentru spirit. Răul — este o închipuire de viață. Există numai ce e viu și ce nu e viu. Răul — nu e viu. Aceasta este reprezentarea despre toată lumea oamenilor; dar pentru fiecare om există conștiința împărăției cerului în suflet. Fiecare poate, după bunul său plac, să intre sau să nu intre în ea. Ca să intri în ea, trebuie să crezi în viața spiritului. Cel ce crede în viața spiritului are viață nesfârșită.
+Și lămurind sensul împărăției lui Dumnezeu, Isus spune: Fiecare om, pe lângă viața sa trupească, pe lângă zămislirea, înțeleasă de el, de la un tată trupesc în pântecele unei mame trupești, are conștiința unui spirit liber, rațional și neatârnat de trup. Tocmai acest spirit, nesfârșit și ieșit din nesfârșit, este principiul a toate și ceea ce numim noi Dumnezeu. Îl cunoaștem numai în noi. Acest spirit este principiul vieții noastre, și el trebuie pus mai presus de toate, prin el trebuie să trăim. Făcând din acest spirit temelia vieții, primim viața adevărată, nesfârșită. Tatăl spirit care a trimis acest spirit în oameni nu putea să-l trimită ca să-i înșele pe oameni, ca oamenii, având conștiința vieții nesfârșite în ei, s-o piardă. Dacă există în om acest spirit nesfârșit, atunci el trebuie să dea viață nesfârșită. Și de aceea omul care își pune viața în acest spirit are viață nesfârșită. Omul care nu-și pune viața în acest spirit nu are viață. Oamenii își pot alege singuri viața și moartea. Viața este în spirit, moartea în trup. Viața spiritului este binele, lumina; viața trupului — răul, întunericul. A crede în spirit — înseamnă a săvârși faptele binelui; a nu crede — înseamnă a săvârși faptele răului. Binele este viața, răul este moartea. Pe Dumnezeu, creatorul exterior, principiul tuturor principiilor, nu-l cunoaștem. Tot ce ne putem închipui despre el este că el a semănat în oameni spiritul, și a semănat cum seamănă semănătorul, peste tot, fără să aleagă pământul, și sămânța care a căzut în pământ bun crește, iar în cel nepotrivit — piere. Numai spiritul dă viață oamenilor, <!-- vol. 24, p. 833 --> și de la oameni depinde s-o păstreze sau s-o piardă. Răul nu există pentru spirit. Răul — este o aparență de viață. Există numai ce e viu și ce nu e viu. Răul — nu e viu. Aceasta este reprezentarea despre toată lumea oamenilor; dar pentru fiecare om există conștiința împărăției cerului în suflet. Fiecare poate, după bunul său plac, să intre sau să nu intre în ea. Ca să intri în ea, trebuie să crezi în viața spiritului. Cel ce crede în viața spiritului are viață nesfârșită.
 
 Mat. XI, 2, 3. După aceasta au venit ucenicii lui Ioan să-l întrebe pe Isus: este el acela despre care vorbește Ioan; deschide el împărăția lui Dumnezeu și îi înnoiește el pe oameni prin spirit?
 
@@ -639,17 +639,17 @@ Luc. XVII, 20. Și au venit la Isus ortodocșii și au început să-l întrebe c
 
 21. Și nu are nici timp, nici loc, pentru că împărăția lui Dumnezeu, aceea pe care o propovăduiesc eu, — este înăuntrul vostru.
 
-Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodim, a venit la Isus noaptea și spune: tu nu poruncești să se țină sâmbetele, nu poruncești să se păstreze curățenia, nu poruncești să se aducă jertfe, să se postească; templul l-ai nimicit, despre Dumnezeu spui că el este — spirit, și despre împărăția lui Dumnezeu spui că este înăuntrul nostru. Ce fel de împărăție a lui Dumnezeu este aceasta?
+Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodim, a venit la Isus noaptea și spune: tu nu poruncești să se țină sâmbetele, nu poruncești să se păstreze curăția, nu poruncești să se aducă jertfe, să se postească; templul l-ai nimicit, despre Dumnezeu spui că el este — spirit, și despre împărăția lui Dumnezeu spui că este înăuntrul nostru. Ce fel de împărăție a lui Dumnezeu este aceasta?
 
 3. Și Isus i-a răspuns: înțelege tu, dacă omul este zămislit din cer, atunci în el trebuie să fie ceva ceresc.
 
-4. Nicodim n-a înțeles aceasta și a spus: cum poate omul, dacă este zămislit din trupul tatălui și a îmbătrânit, să intre iar în pântecele mamei și să fie zămislit de la început?
+4. Nicodim n-a înțeles aceasta și a spus: cum poate omul, dacă este zămislit din trupul tatălui și a îmbătrânit, să se vâre iar în burta mamei și să fie zămislit de la început?
 
 5. Și Isus i-a răspuns: înțelege tu ce spun. Eu spun că omul, pe lângă trup, este zămislit și din spirit, și de aceea orice om este zămislit din trup și din spirit, și de aceea în el poate fi împărăția cerului.
 
 6. Din trup — trup. Din trup nu se poate naște spirit: numai din spirit poate fi spirit.
 
-<!-- vol. 24, p. 835 --> 8. Spiritul — este ceea ce trăiește în tine, și trăiește liber și rațional, și ceea ce nu-i cunoști nici începutul, nici sfârșitul, și aceasta o simte în sine orice om.
+<!-- vol. 24, p. 835 --> 8. Spiritul — este ceea ce trăiește în tine, și trăiește liber și rațional, și lucrul căruia nu-i cunoști nici începutul, nici sfârșitul, și aceasta o simte în sine orice om.
 
 7. Și de aceea, de ce te-ai mirat că ți-am spus că trebuie să fim zămisliți din cer?
 
@@ -657,7 +657,7 @@ Ioan III, 1, 2. După aceasta, un ortodox dintre căpeteniile evreiești, Nicodi
 
 10. Atunci Isus i-a spus: ce fel de învățător ești tu, dacă nu înțelegi aceasta!
 
-11. Înțelege tu că nu tâlcuiesc eu vreo înțelepciune deosebită; eu tâlcuiesc ceea ce știm cu toții, te încredințez de ceea ce vedem cu toții.
+11. Înțelege tu că nu tâlcuiesc eu cine știe ce înțelepciuni; eu tâlcuiesc ceea ce știm cu toții, te încredințez de ceea ce vedem cu toții.
 
 12. Cum vei crede tu în ceea ce este în cer, dacă nu crezi în ceea ce este pe pământ, ceea ce este în tine însuți.
 
@@ -687,7 +687,7 @@ Mat. XIII, 3. Și după aceasta a început Isus să tâlcuiască poporului ce es
 
 7. Iar altele cad în pelin, și pelinul înăbușă grâul, și răsare spicul, dar nu se umple.
 
-8. Iar altele cad în pământ bun, acelea răsar și recuperează pentru boabele pierdute, și dau în spic și se umplu; și un spic dă însutit, altul de șaizeci de ori, altul de treizeci de ori.
+8. Iar altele cad în pământ bun, acelea răsar și compensează boabele pierdute, și dau în spic și se umplu; și un spic dă însutit, altul de șaizeci de ori, altul de treizeci de ori.
 
 Tot așa și Dumnezeu a semănat spiritul în oameni, în unii el se pierde, iar în alții rodește însutit. Tocmai acești oameni alcătuiesc împărăția lui Dumnezeu.
 
