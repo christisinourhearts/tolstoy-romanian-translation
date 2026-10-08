@@ -974,3 +974,357 @@ Mat. XII, 19. Că el, ca să aducă dreptatea în lume, nu se ceartă, nu strig�
 20. Că el nu va rupe un pai și nu va stinge o candelă de noapte.
 
 21. Și că toată nădejdea oamenilor este în învățătura lui.
+
+## Capitolul V VIAȚA ADEVĂRATĂ
+
+### ÎMPLINIREA VOII PERSONALE DUCE LA MOARTE, ÎMPLINIREA VOII TATĂLUI DĂ VIAȚA ADEVĂRATĂ. (FACĂ-SE VOIA TA.)
+
+#### CUPRINSUL CAPITOLULUI V
+
+Înțelepciunea vieții constă în a-ți recunoaște viața drept fiu al spiritului tatălui.
+
+Oamenii își pun scopuri ale vieții trupești și, atingând aceste scopuri, se chinuie pe ei și pe alții. Recunoscând învățătura despre viața spiritului și supunându-se și smerindu-se în trup, oamenii vor găsi o deplină mulțumire <!-- vol. 24, p. 848 --> în viața spiritului, chiar aceea care singură le este și hărăzită.
+
+S-a întâmplat odată ca Isus să ceară să bea de la o femeie de altă credință. Femeia l-a refuzat sub cuvânt că ea este de altă credință decât el. La aceasta Isus i-a spus: dacă ai înțelege că îți cere să bea un om viu, acela în care este spiritul tatălui, nu l-ai refuza, ci ai căuta ca, făcând binele, să te unești prin spirit cu tatăl, și spiritul tatălui ți-ar da o apă nu dintre acelea după care iarăși îți va fi sete, ci una care va da viață veșnică. Să te rogi lui Dumnezeu nu se poate nicăieri, ci se poate numai să le slujești celor în care este spiritul lui, să-i slujești lui prin faptele iubirii.
+
+Și Isus le-a spus ucenicilor: hrana adevărată a omului este să împlinească voia tatălui spirit. Împlinirea acestei voi este întotdeauna cu putință. Toată viața noastră este o strângere a roadelor vieții pe care a semănat-o în noi tatăl. Roadele — sunt binele pe care îl facem oamenilor. Nu trebuie să aștepți nimic, trebuie să nu încetezi să trăiești, făcând bine oamenilor.
+
+După aceasta s-a întâmplat ca Isus să fie la Ierusalim. În Ierusalim era o scăldătoare, lângă care zăcea un bolnav, fără să facă nimic, așteptând vindecare de la o minune. Isus s-a apropiat de cel slăbănog și i-a spus: nu aștepta vindecare de la o minune, ci trăiește tu însuți, câtă putere este în tine, și nu te înșela asupra sensului vieții. Slăbănogul l-a ascultat pe Isus, s-a ridicat și a plecat. Văzând aceasta, ortodocșii au început să-l mustre pe Isus pentru ceea ce spusese și pentru că sâmbăta îl ridicase pe slăbănog. Isus le-a spus: n-am făcut nimic nou. Am făcut numai ceea ce face tatăl nostru al tuturor, spiritul. El trăiește și îi face vii pe oameni, iar eu am făcut același lucru. Și aceasta este chemarea oricărui om. Orice om are libertate și poate să trăiască sau să nu trăiască. A trăi — înseamnă a împlini voia tatălui, adică a face bine altora; a nu trăi — înseamnă a-ți împlini voia ta și a nu face bine altora. În puterea fiecăruia este să facă una sau alta și să primească viața sau s-o nimicească.
+
+Viața adevărată a oamenilor seamănă cu aceasta. Un stăpân le dă robilor săi o parte din averea sa prețioasă și poruncește fiecăruia să lucreze cu ceea ce i-a dat. Unii lucrează, alții nu, și ascund ceea ce li s-a dat. Stăpânul cere socoteala și celor care au lucrat le dă încă mai mult decât aveau, iar de la cei care n-au lucrat ia și ce mai au.
+
+<!-- vol. 24, p. 849 --> Partea prețioasă a averii stăpânului — este spiritul vieții din om, fiul tatălui spirit. Acela care lucrează în viață pentru viața spiritului primește o viață care nu se sfârșește; cine nu lucrează se lipsește de aceea care i-a fost dată.
+
+Viața adevărată este numai viața comună a tuturor, și nu viața unuia. Toți trebuie să lucreze pentru viața altora.
+
+După aceasta Isus s-a dus într-un loc pustiu, și a mers după el mult popor. Spre seară au venit ucenicii și au spus: cu ce să hrănim tot poporul acesta? Printre popor erau unii care nu aveau nimic, dar erau și unii care luaseră cu ei pâine și pește. Atunci Isus le-a spus ucenicilor: dați toată pâinea pe care o aveți. El a luat pâinile, le-a dat ucenicilor, iar aceia le-au dat altora, și ceilalți au început să facă la fel. Și toți au mâncat din al altuia, și toți n-au mâncat tot ce era, și toți au fost mulțumiți. Și Isus a spus: iată, așa să faceți. Nu aceasta trebuie, ca fiecare să-și dobândească hrană pentru sine, ci trebuie ceea ce poruncește spiritul din om: să dai altora ceea ce ai. Hrana adevărată a omului — este spiritul tatălui. Oamenii sunt vii numai prin spirit.
+
+Tot ce este viață, tuturor acestora trebuie să le slujești, pentru că viața nu stă în a-ți face voia ta, ci voia tatălui vieții. Iar voia tatălui vieții este ca toată acea viață a spiritului care este în fiecare să rămână în el și ca toți să păstreze în ei viața spiritului până în ceasul morții. Tatăl, izvorul a toată viața, este spirit. Viața este numai în împlinirea voii tatălui, și de aceea, pentru împlinirea voii spiritului, trebuie să-ți dai trupul. Trupul este hrana pentru viața spiritului. Numai dându-și trupul, spiritul trăiește.
+
+După aceasta Isus și-a ales ucenici și i-a trimis pretutindeni să-i propovăduiască învățătura despre viața spiritului. Trimițându-i, el a spus: voi propovăduiți viața spiritului și de aceea lepădați-vă dinainte de toate poftele trupului — să nu aveți nimic al vostru. Fiți gata de prigoane, de lipsuri, de suferințe. Vă vor urî cei care iubesc viața trupului, și vă vor chinui și vă vor ucide, dar voi să nu vă temeți. Dacă împliniți voia tatălui, aveți viața spiritului, și nimeni nu v-o poate lua.
+
+Ucenicii s-au dus și, când s-au întors, au vestit că pretutindeni învățătura răului a fost biruită de ei.
+
+Atunci ortodocșii i-au spus lui Isus că învățătura lui, chiar dacă biruie răul, este ea însăși un rău, întrucât oamenii care o împlinesc trebuie să îndure suferințe. La aceasta Isus a spus: răul nu poate birui răul. Dacă răul este biruit, el <!-- vol. 24, p. 850 --> este biruit numai de bine. Binele — aceasta este voia tatălui spirit, comună tuturor oamenilor. Fiecare om știe ce este binele pentru el. Dacă face aceasta pentru alți oameni, dacă face ceea ce este voia tatălui spirit, atunci face binele. Și de aceea împlinirea voii tatălui spirit este binele, chiar dacă ar fi legată de suferința și de moartea celor care o împlinesc.
+
+Mat. XI, 25. Și s-a bucurat Isus de puterea spiritului și a spus: Recunosc spiritul tatălui drept principiu a tot ce este ceresc și pământesc, pentru că ceea ce a fost ascuns de cei deștepți și de înțelepți, aceea li se descoperă celor fără minte numai prin faptul că se recunosc fii ai tatălui.
+
+28. Toți se îngrijesc de binele trupesc, s-au înhămat la un car pe care nu-l pot trage și și-au pus un jug care nu e făcut pe măsura lor. Înțelegeți învățătura mea și urmați-o, și veți cunoaște liniștea și bucuria în viață. Eu vă dau un alt jug și un alt car: viața spirituală.
+
+29. Înhămați-vă la ea, și veți învăța de la mine liniștea și fericirea. Fiți liniștiți și blânzi cu inima și veți găsi fericirea în viața voastră.
+
+30. Pentru că învățătura mea — acesta este jugul făcut pe măsura voastră, și împlinirea învățăturii mele — acesta este carul ușor, și jugul făcut pe măsura voastră.
+
+Ioan IV, 5. Mergea odată Isus spre orașul samaritean Sihar, aproape de ogorul pe care Iacov îl dăduse fiului său Iosif.
+
+6. Și era acolo fântâna lui Iacov. Isus obosise de drum și s-a așezat la fântână.
+
+7. Și a venit o femeie din Samaria după apă. Și i-a spus Isus: dă-mi să beau.
+
+8. Iar ucenicii lui Isus se duseseră în oraș să cumpere hrană.
+
+9. Și i-a spus samariteanca: cum de tu, evreu, îmi ceri să bei? Doar evreii nu au legături cu samaritenii.
+
+10. Și i-a spus Isus: Dacă ai înțelege ce a dat Dumnezeu oamenilor și cine îți cere să bea, ți-aș fi dat apa vieții.
+
+11. Și a spus femeia: tu nici găleată n-ai, și fântâna e adâncă, cum îmi vei da apa vieții?
+
+12. Oare ești tu mai mare decât tatăl nostru Iacov? El a dat fântâna aceasta și el însuși a băut din ea, și copiii lui, și vitele lui.
+
+<!-- vol. 24, p. 851 --> 13. Și a răspuns Isus: acela care va bea din apa aceasta iarăși va înseta, iar cine va bea din apa pe care i-o voi da eu nu va mai cunoaște setea niciodată.
+
+14. Ci apa pe care i-o voi da eu va naște în el un izvor de apă care curge spre viața veșnică.
+
+15. Și a spus femeia: dă-mi o asemenea apă, ca să nu mai trebuiască să beau și să nu mai trebuiască să merg după apă.
+
+16. Și Isus a spus: du-te, cheamă-ți bărbatul și vino aici.
+
+19. Și i-a spus femeia: văd că tu ești profet.
+
+20. Părinții noștri se roagă lui Dumnezeu aici, pe muntele acesta, iar voi spuneți că în Ierusalim este locul lui Dumnezeu, unde trebuie să te rogi.
+
+21. Și i-a spus Isus: crede-mă, femeie, că nici pe muntele acesta, nici în Ierusalim nu se roagă oamenii tatălui.
+
+23. A venit vremea când se roagă cu adevărat, tatălui, în viața spiritului și prin faptă. Și tatăl are nevoie de asemenea închinători.
+
+24. Tatăl — este spiritul, și lui trebuie să i te rogi în spirit și prin faptă.
+
+25. Și a spus femeia: știu că va veni mesia și, când va veni, ne va spune totul.
+
+26. Și a spus Isus: eu îți spun totul.
+
+28. Și s-a dus femeia și i-a chemat pe oameni.
+
+31. În vremea aceea s-au întors ucenicii cu pâine și l-au întrebat pe Isus dacă vrea să mănânce?
+
+32. Și el a spus: eu am o hrană pe care voi nu o cunoașteți.
+
+33. Ei s-au gândit că cineva îi adusese de mâncare.
+
+34. Dar el a spus: hrana mea este să fac voia aceluia care mi-a dat viața și să săvârșesc ceea ce mi-a încredințat el.
+
+35 și 36. Nu spuneți: mai este vreme, cum spune plugarul așteptând secerișul: Acela care împlinește voia tatălui este întotdeauna mulțumit și nu cunoaște nici foamea, nici setea. Împlinirea voii lui Dumnezeu îl mulțumește pe om întotdeauna, poartă răsplata în ea însăși. Nu se poate spune: voi împlini mai târziu voia tatălui. Cât timp este viață, este întotdeauna cu putință și trebuie împlinirea voii tatălui.
+
+37. Viața noastră este ogorul pe care l-a semănat Dumnezeu; iar treaba noastră este să-i strângem roadele.
+
+38. Și dacă strângem roadele, primim răsplata — viața nevremelnică. Adevărat este că nu noi înșine ne dăm viața, ci altcineva. Și dacă trudim pentru strângerea vieții, atunci, ca secerătorii, primim răsplata. Eu vă învăț să strângeți această viață pe care v-a dat-o tatăl.
+
+<!-- vol. 24, p. 852 --> Ioan V, 1. A venit odată Isus la Ierusalim.
+
+2. Și era atunci în Ierusalim o scăldătoare.
+
+4. Și se spunea despre scăldătoarea aceasta că un înger coboară în ea, și de aceea apa din scăldătoare începe să se joace, și că acela care, dacă e primul, după ce apa începe să se joace, se cufundă în scăldătoare, acela, de orice ar fi bolnav, se va însănătoși.
+
+2. Și erau făcute în jurul scăldătorii șoproane.
+
+3. Și sub aceste șoproane zăceau bolnavi și așteptau să se joace apa în scăldătoare, ca să se cufunde în ea.
+
+5. Și era acolo un om de treizeci și opt de ani în slăbiciune. Isus a întrebat ce are? Și omul i-a povestit că de treizeci și opt de ani boleșește și tot așteaptă să ajungă primul în scăldătoare când se joacă apa, ca să se vindece, dar iată, de treizeci și opt de ani nu poate ajunge primul, întotdeauna alții intră înaintea lui în scăldătoare și se scaldă.
+
+6. Și Isus a văzut că e bătrân și i-a spus: vrei să te faci sănătos?
+
+7. Acela a spus: vreau, dar n-am om care să mă bage în apă la vreme. Întotdeauna intră cineva înainte.
+
+8. Și i-a spus Isus: trezește-te, ia-ți patul și mergi.
+
+9. Și slăbănogul și-a luat patul și a plecat. Iar era sâmbătă.
+
+10. Și au spus ortodocșii: nu ai voie să-ți strângi patul — azi e sâmbătă.
+
+11. El a spus: cel care m-a ridicat, acela mi-a și poruncit să-mi strâng patul.
+
+15. Slăbănogul s-a dus și le-a spus ortodocșilor că Isus l-a vindecat.
+
+16. Și s-au mâniat ortodocșii și îl prigoneau pe Isus pentru că făcea asemenea fapte sâmbăta.
+
+17. Și Isus a spus: ceea ce face tatăl întotdeauna, aceea fac și eu.
+
+19. Adevărat vă spun: fiul nu poate face nimic de la sine. El face numai ceea ce a înțeles de la tatăl. Ce face tatăl, aceea face și el.
+
+20. Tatăl îl iubește pe fiu și chiar prin aceasta l-a învățat tot ce trebuie să facă fiul.
+
+21. Tatăl dă viață morților, așa și fiul dă viață cui vrea, pentru că, precum fapta tatălui este viața, așa și fapta fiului trebuie să fie viața.
+
+22. Tatăl nu i-a osândit pe oameni la moarte, ci le-a dat oamenilor puterea, după voia lor, — să moară sau să trăiască.
+
+<!-- vol. 24, p. 853 --> 23. Și vor trăi dacă îl vor cinsti pe fiu ca pe tatăl.
+
+24. Adevărat vă spun: că acela care a înțeles sensul învățăturii mele și a crezut în tatăl comun al tuturor oamenilor, acela are deja viață și este izbăvit de moarte.
+
+25. Cei care au înțeles sensul vieții omenești, aceia au scăpat deja de moarte și vor trăi întotdeauna.
+
+26. Pentru că, precum tatăl trăiește prin sine însuși, așa și fiului i-a dat viață în sine însuși.
+
+27. Și i-a dat libertate. Tocmai prin aceasta este el fiul omului.
+
+28. De acum toți muritorii se vor împărți în două.
+
+29. Unii, cei care fac binele, vor găsi viața; iar cei care fac răul se vor nimici.
+
+30. Și nu eu hotărăsc aceasta, ci aceasta este ceea ce am înțeles de la tatăl. Și hotărârea mea este dreaptă, pentru că hotărăsc așa nu ca să fac ceea ce vreau eu, ci pentru ca toți să facă ceea ce vrea tatăl tuturor.
+
+31. Dacă i-aș încredința pe toți că învățătura mea este adevărată, aceasta n-ar întări învățătura mea.
+
+36. Dar este ceva care întărește învățătura mea, acestea sunt faptele pe care le învăț. Ele arată că nu învăț de la mine, ci de la tatăl tuturor oamenilor.
+
+37. Și tatăl meu, acela care m-a învățat, el confirmă adevărul poruncilor mele în sufletele tuturor. Dar voi nu vreți să înțelegeți și să cunoașteți glasul lui.
+
+38. Și de sensul acestui glas nu vă țineți. Că în voi este spiritul coborât din cer, tocmai în aceasta nu credeți.
+
+39. Pătrundeți sensul scrierilor voastre. Veți găsi în ele același lucru ca și în învățătura mea, — porunci de a trăi nu numai pentru sine, ci de a face bine oamenilor.
+
+40. De ce nu vreți atunci să credeți în poruncile mele, în acelea care dau viață tuturor oamenilor?
+
+40. Eu vă învăț în numele tatălui comun al tuturor oamenilor, și voi nu primiți învățătura mea, iar dacă vă va învăța cineva în numele său, pe acela îl veți crede.
+
+44. Nu se poate crede în ceea ce își spun oamenii unii altora, ci se poate crede numai în aceea că în fiecare om este fiul, întocmai ca tatăl.
+
+Luca XIX, 11, 12. Și pentru ca oamenii să nu creadă că împărăția cerului este ceva văzut, ci ca să înțeleagă că împărăția <!-- vol. 24, p. 854 --> lui Dumnezeu constă în împlinirea voii tatălui și că împlinirea voii tatălui depinde de efortul fiecărui om, ca să înțeleagă oamenii că viața este dată nu pentru sine personal, ci pentru împlinirea voii tatălui, și că numai împlinirea voii tatălui scapă de moarte și dă viața, — Isus a spus o pildă.
+
+El a spus: Era un om bogat, și trebuia să plece de acasă.
+
+13. Înainte de plecare și-a chemat robii și le-a împărțit zece talanți — fiecăruia câte unul — și le-a spus: cât voi fi plecat, lucrați fiecare cu ceea ce v-am dat.
+
+14. Dar s-a întâmplat că, după ce a plecat, unii locuitori ai acelui oraș au spus: nu mai vrem să-i slujim.
+
+15. Iată, cum s-a întors omul bogat din călătorie, i-a chemat pe robii cărora le dăduse bani și le-a poruncit să spună ce a făcut fiecare cu banii lui.
+
+16. A venit primul și spune: iată, stăpâne, la unul al tău am câștigat zece.
+
+17. Și i-a spus stăpânul: bine, slugă bună, în puțin ai fost credincios, peste mult te voi pune, fii părtaș cu mine la toată bogăția mea.
+
+18. A venit alt rob și a spus: iată, stăpâne, la talantul tău am câștigat cinci.
+
+19. Și i-a spus stăpânul: bine ai făcut, rob bun, fii părtaș cu mine la toată averea mea.
+
+20. A mai venit unul și spune: iată talantul tău, l-am ascuns într-o batistă și l-am îngropat.
+
+21. Pentru că m-am temut de tine. Ești om aspru: iei unde n-ai pus și aduni unde n-ai semănat.
+
+22; Mat. 25, 26. Și stăpânul i-a spus: rob prost! după cuvintele tale te voi judeca. Spui că de frica mea ți-ai ascuns talantul în pământ și n-ai lucrat cu el. Dacă știai că sunt aspru și iau acolo unde n-am dat, de ce n-ai făcut atunci ceea ce ți-am poruncit să faci?
+
+Luca XIX, 23; Mat. XXV, 26 și 27. Dacă ai fi lucrat cu talantul meu, averea ar fi sporit, și ai fi împlinit ceea ce ți-am poruncit. Iar acum n-ai făcut lucrul pentru care ți s-a dat talantul, și de aceea nu poți să-l stăpânești.
+
+Luca XIX, 24; Mat. XXV, 28. Și a poruncit stăpânul să se ia talantul de la cel care n-a lucrat cu el și să se dea celui care a lucrat mai mult.
+
+<!-- vol. 24, p. 855 --> Luca XIX, 25. Și atunci slugile i-au spus: doamne, aceia au și așa mult.
+
+26. Iar stăpânul a spus: dați-le celor care au lucrat mult, pentru că celui ce păzește ceea ce are i se va adăuga, iar de la cel ce nu păzește se va lua și ce mai are.
+
+Mat. XXV, 30. Pe cei care n-au vrut să fie sub stăpânirea mea, alungați-i afară, ca să nu mai fie.
+
+Stăpânul — este principiul vieții, spiritul tată. Robii lui — sunt oamenii. Talanții — sunt viața spiritului. Precum stăpânul nu lucrează el însuși cu averea sa, ci le poruncește robilor să lucreze, fiecăruia după sine, tot așa și spiritul tată a pus spiritul vieții în oameni, le-a dat porunca de a lucra pentru viața oamenilor și i-a lăsat singuri. Cei care au trimis să spună că nu recunosc stăpânirea stăpânului — aceștia sunt cei care nu recunosc spiritul vieții. Întoarcerea stăpânului și cererea socotelii — aceasta este nimicirea vieții trupești și hotărârea soartei oamenilor: au ei încă viață în afară de aceea care le-a fost dată. Unii, acei robi care împlinesc voia stăpânului, lucrează cu ceea ce le-a fost dat și din bani câștigă bani, aceștia sunt oamenii care, primind viața, înțeleg că viața este voia tatălui și trebuie să slujească vieții altora. Robul prost și rău, care și-a ascuns talantul și n-a lucrat cu el, — aceștia sunt oamenii care își împlinesc numai voia lor, și nu voia tatălui, și nu slujesc vieții altora. Robii care au împlinit voia și au lucrat pentru sporirea averii stăpânului devin părtași la toată averea stăpânului, iar robii care n-au împlinit voia și n-au lucrat pentru stăpân se lipsesc de ceea ce le fusese dat. Oamenii care au împlinit voia tatălui și au slujit vieții devin părtași la viața tatălui și primesc viața, în ciuda nimicirii vieții trupești. Cei care n-au împlinit voia și n-au slujit vieții se lipsesc de viața pe care au avut-o și se nimicesc. Cei care n-au vrut să recunoască stăpânirea stăpânului, aceia nu există pentru stăpân; el îi alungă. Oamenii care nu recunosc în ei viața spiritului, aceia nu există pentru tatăl.
+
+Ioan VI, 1. După aceasta Isus s-a dus într-un loc pustiu.
+
+2. Și a mers după el mult popor.
+
+3. Și a urcat pe munte și s-a așezat acolo cu ucenicii.
+
+5. Și a văzut că vine mult popor și a spus: de unde să facem rost de pâine, ca să hrănim tot poporul acesta?
+
+<!-- vol. 24, p. 856 --> 7. Filip a spus: nici două sute de dinari nu vor ajunge, dacă le-am da tuturor fie și câte puțin.
+
+Mt. XIV, 17; Ioan VI, 9. Noi avem numai puțină pâine și pește. Și a spus un alt ucenic: ei au pâine, am văzut, iată, la un băiat cinci pâini și doi peștișori.
+
+Ioan VI, 10. Și a spus Isus: spuneți-le tuturor să se culce pe iarbă.
+
+11. Și a luat Isus pâinile care erau la el și le-a dat ucenicilor și le-a poruncit să le dea altora; și astfel toți au început să-și dea unii altora ce aveau, și toți s-au săturat și a mai rămas mult.
+
+26. A doua zi a venit iar poporul la Isus, și el le-a spus: iată, voi veniți la mine nu pentru că ați văzut minuni, ci pentru că ați mâncat pâine și v-ați săturat.
+
+27. Și le-a spus: lucrați nu hrana pieritoare, ci hrana veșnică, aceea pe care o dă numai spiritul fiului omului, pecetluit de Dumnezeu.
+
+28. Iudeii au spus: ce trebuie să facem, ca să facem lucrul lui Dumnezeu?
+
+29. Și a spus Isus: lucrul lui Dumnezeu este să credeți în viața pe care v-a dat-o el.
+
+30. Ei spun: dă-ne o dovadă, ca să te credem în ceea ce faci.
+
+31. Părinții noștri au mâncat mană în pustie. Dumnezeu le-a dat să mănânce pâine din cer, așa e și scris.
+
+32. Isus le-a răspuns: pâinea cerească adevărată — este spiritul fiului omului, acela pe care îl dă tatăl.
+
+33. Pentru că hrana omului — este spiritul coborât din cer. Tocmai el dă viață lumii.
+
+35. Învățătura mea dă hrana adevărată oamenilor. Acela care mă va urma nu va flămânzi, iar acela care crede în învățătura mea nu va cunoaște niciodată dușmănia.
+
+36. Dar v-am spus deja că ați văzut aceasta și nu credeți.
+
+37. Toată viața pe care tatăl i-a dat-o fiului, toată se va afla în învățătura mea, și oricine crede în ea va fi părtaș la ea.
+
+38. Întrucât eu am coborât din cer nu ca să fac ceea ce vreau eu, ci ca să fac voia tatălui, a celui care mi-a dat viața.
+
+39. Iar voia tatălui, care m-a trimis, este ca toată viața pe care mi-a dat-o eu s-o păstrez și să nu pierd nimic din ea.
+
+40. Și de aceea tocmai aceasta este voia tatălui, care m-a trimis, ca oricine îl vede pe fiu și crede în el să aibă viață veșnică. Și învățătura mea va da viață în ziua de pe urmă.
+
+<!-- vol. 24, p. 857 --> 41. Evreii s-au tulburat de ceea ce spusese el, că învățătura mea a coborât din cer.
+
+42. Ei spuneau: doar acesta e Isus — fiul lui Iosif, îi cunoaștem tatăl și mama, cum spune el că învățătura lui a coborât din cer?
+
+43. Și le-a spus Isus: nu judecați despre cine sunt eu și de unde am venit.
+
+44. Învățătura mea este adevărată nu pentru că eu, ca Moise, vă voi încredința că Dumnezeu a vorbit cu mine pe Sinai, ci este adevărată pentru că ea este și în voi. Oricine crede în poruncile mele crede nu pentru că spun eu, ci pentru că tatăl nostru comun îl atrage la sine, și învățătura mea îi dă viață până în ziua de pe urmă.
+
+45. Și în profeți este scris că toți vor fi învățați de Dumnezeu. Oricine îl va înțelege pe tatăl și va învăța să-i înțeleagă voia, acela prin chiar aceasta se va da învățăturii mele.
+
+46. Ca cineva să-l fi văzut sau să-l vadă pe Dumnezeu, aceasta n-a fost niciodată, dar acela care este de la Dumnezeu, acela l-a văzut și îl vede pe tatăl.
+
+47. Cine mă crede are viață veșnică.
+
+48. Învățătura mea este hrana vieții.
+
+49. Părinții voștri au mâncat mană, hrană venită de-a dreptul din cer, și tot au murit.
+
+50. Iar hrana adevărată a vieții, coborâtă din cer, este așa încât cine se hrănește cu ea nu va muri.
+
+51. Învățătura mea este hrana vieții, coborâtă din cer. Cine se hrănește cu ea trăiește veșnic. Și hrana aceasta, pe care o învăț eu, este trupul meu, pe care îl dau pentru viața tuturor oamenilor.
+
+52. Evreii n-au înțeles deloc ceea ce spusese el și au început să se certe despre cum se poate da și de ce trupul tău pentru hrana oamenilor.
+
+53. Și le-a spus Isus: dacă nu vă veți da trupul pentru viața spiritului, atunci nici nu va fi în voi viață.
+
+54. Acela care nu-și dă trupul pentru viața spiritului nu are viața adevărată.
+
+55. Ceea ce în mine își dă trupul pentru spirit, numai aceea trăiește. Și de aceea trupul nostru este hrana adevărată pentru viața adevărată.
+
+56. Numai ceea ce în mine mănâncă trupul meu, ceea ce dă viața trupească pentru viața adevărată, numai aceea sunt eu, cu adevărat eu, aceea este în mine, și eu în el.
+
+57. Și precum prin voia tatălui eu trăiesc în trup, întocmai așa și prin voia mea va trăi ceea ce trăiește în mine.
+
+<!-- vol. 24, p. 858 --> 60. Și unii ucenici, auzind aceasta, au spus: aspre sunt cuvintele acestea, și greu de înțeles.
+
+61. Și Isus le-a spus: sunteți atât de încurcați, încât vi se pare greu ceea ce spun despre ce a fost, și este, și va fi întotdeauna omul.
+
+63. Omul este spirit în trup, și numai spiritul dă viață, iar trupul nu dă viață. În cuvintele care vi se par atât de încâlcite eu n-am spus doar nimic altceva decât că spiritul este viața.
+
+Luc. X, 1. Apoi Isus a ales dintre cei apropiați ai săi șaptezeci de oameni și i-a trimis în acele locuri unde voia să ajungă el însuși.
+
+2. El le-a spus: mulți oameni nu cunosc binele vieții adevărate, de toți mi-e milă și pe toți doresc să-i învăț. Dar, cum unui gospodar nu-i ajung puterile la secerișul ogorului său, așa nici eu nu voi apuca.
+
+3. Duceți-vă voi prin diferite orașe și vestiți pretutindeni împlinirea voii tatălui. Spuneți că voia tatălui este în cinci porunci: 1, să nu te mânii, 2, să nu desfrânezi, 3, să nu juri; 4, să nu te împotrivești răului și 5, să nu faci deosebire între oameni. Și de aceea împliniți voi înșivă întru totul aceste porunci.
+
+Mat. X, 16. Eu vă trimit ca pe niște oi printre lupi. Fiți înțelepți ca șerpii și curați ca porumbeii.
+
+Luc. X, 4. Mai întâi de toate să nu aveți nimic al vostru, să nu luați nimic cu voi: nici traistă, nici pâine, nici bani, numai haina de pe trup și încălțămintea.
+
+Apoi să nu faceți deosebire între oameni, să nu vă alegeți gazdele la care să intrați.
+
+Marc. VI, 10. Ci în prima casă în care veți veni, în aceea să și rămâneți. Când veniți într-o casă, salutați-i pe gazde.
+
+11. Dacă vă primesc, rămâneți, dacă nu vă primesc — mergeți în altă casă.
+
+Mat. X, 22. Pentru ceea ce veți spune, vă vor urî și vă vor ataca și vă vor goni.
+
+23. Și când vă vor alunga, mergeți în alt sat, iar dacă vă vor alunga și de acolo, mergeți în altul.
+
+Vă vor goni cum gonesc lupii oile, dar voi să nu vă pierdeți cumpătul, răbdați până în ceasul de pe urmă. Și vă vor duce la judecăți și vă vor judeca, și vă vor bate cu nuiele, și vă vor duce la căpetenii, ca să vă dezvinovățiți înaintea lor.
+
+19. Și când vă vor duce la judecăți, să nu vă pierdeți cumpătul și să nu născociți ce să spuneți: spiritul tatălui va spune în voi ce trebuie spus.
+
+<!-- vol. 24, p. 859 --> 23. Încă nu veți fi umblat prin toate orașele, și oamenii vor înțelege deja învățătura voastră și se vor întoarce la ea.
+
+26. Așa că nu vă temeți. Ceea ce este ascuns în sufletele oamenilor va ieși la iveală.
+
+27. Ceea ce le veți spune la doi sau la trei se va răspândi printre mii.
+
+28. Și mai ales, nu vă temeți de cei care vă pot ucide trupul: sufletelor voastre ele nu le pot face nimic. Așa că nu vă temeți de ei. Ci temeți-vă să nu se nimicească trupurile și sufletele, dacă vă veți abate de la împlinirea voii tatălui, de aceasta să vă temeți.
+
+29. Pe o copeică se dau cinci vrăbii, și nici ele nu mor fără voia tatălui.
+
+30. Și un fir de păr din cap nu cade fără voia tatălui.
+
+31. Atunci de ce să vă temeți, dacă sunteți în voia tatălui.
+
+34. În învățătura mea nu vor crede toți. Iar cei care nu vor crede o vor urî, pentru că ea îi lipsește de ceea ce iubesc, și se va face dezbinare.
+
+Luc. XII, 49. Învățătura mea, ca focul, va aprinde lumea.
+
+51. Și de aceea trebuie să se facă dezbinare în lume.
+
+52. Se va face dezbinare în fiecare casă.
+
+53. Tatăl cu fiul, mama cu fiica, și cei din familie se vor face dușmanii celui care va înțelege învățătura mea, și îi vor ucide.
+
+Luc. XIV, 26. Pentru că pentru acela care va înțelege învățătura mea nu va mai însemna nimic: nici tatăl, nici mama, nici femeia, nici copiii, nici toată averea lui.
+
+Mat. XII, 15. Și atunci ortodocșii învățați au venit din Ierusalim și s-au dus la Isus. Isus era într-un sat, și o mulțime de popor se înghesuise în casă și stătea de jur împrejur.
+
+24. Ortodocșii au început să-i spună poporului să nu asculte învățătura lui Isus, că Isus e îndrăcit, că dacă se va trăi după poruncile lui, în popor va fi și mai mult rău decât acum. Ei spuneau că el alungă răul prin rău.
+
+26. Isus i-a chemat și a spus: voi spuneți că eu alung răul prin rău. Dar nicio putere nu se poate nimici singură. Dacă s-ar nimici singură, atunci nici n-ar exista.
+
+27. Voi alungați răul prin amenințări, prin execuții, prin omoruri, și răul tot nu se nimicește, tocmai pentru că nu poate merge împotriva lui însuși; dar eu alung răul nu prin ceea ce îl alungați voi, — prin urmare, nu prin rău.
+
+<!-- vol. 24, p. 860 --> 28. Eu alung răul prin aceea că îi chem pe oameni să împlinească voia spiritului tatălui, care dă viață tuturor. Cele cinci porunci exprimă voia spiritului, care dă binele și viața.
+
+29. Și de aceea ele nimicesc răul. Și aceasta vă este și dovada că sunt adevărate. Dacă oamenii n-ar fi fiii unui singur spirit, n-ar fi cu putință să biruiești răul, cum nu poți intra în casa celui puternic și s-o jefuiești. Ca să jefuiești casa celui puternic, trebuie mai întâi să-l legi pe cel puternic. Și așa sunt legați oamenii prin unitatea spiritului vieții.
+
+31. Și de aceea vă spun că orice greșeală omenească și orice tâlcuire falsă nu va fi pedepsită; dar tâlcuirea falsă despre spiritul sfânt, care dă viață tuturor, nu le va fi iertată oamenilor.
+
+32. Dacă cineva va spune un cuvânt împotriva omului, aceasta încă nu e nimic, dar dacă cineva va spune un cuvânt împotriva a ceea ce este sfânt în om, despre spirit, aceasta nu poate să-i treacă nepedepsit. Pe mine ocărâți-mă cât vreți, dar nu numiți rău acele porunci ale vieții pe care vi le-am descoperit. Nu-i poate trece nepedepsit omului faptul că va numi binele rău.
+
+30. Trebuie să fii una cu spiritul vieții sau împotriva lui. Trebuie să slujești spiritului vieții și al binelui în toți oamenii, și nu numai în tine.
+
+33. Ori socotiți că viața și binele sunt un bine pentru toată lumea, și atunci iubiți viața și binele pentru toți, ori socotiți viața și binele un rău, și atunci nu iubiți viața și binele nici pentru voi; ori socotiți pomul bun și rodul lui bun, ori socotiți pomul rău și rodul lui rău. Pentru că după rod se prețuiește pomul.
