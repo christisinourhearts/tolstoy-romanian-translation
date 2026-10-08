@@ -293,7 +293,7 @@ Mat. IV, 1. Și de la Iordan s-a dus în pustie și acolo a cunoscut puterea spi
 
 Luc. IV, 3. Dacă ai fi fiul Dumnezeului atotputernic, atunci după voia ta ai putea face pâini din pietre, dar tu nu poți face aceasta, prin urmare nu ești fiul lui Dumnezeu.
 
-<!-- vol. 24, p. 821 --> 4. Dar Isus și-a spus: dacă nu pot face pâine din pietre, aceasta înseamnă că nu sunt fiul Dumnezeului trupului, ci fiul Dumnezeului spiritului. Eu sunt viu nu prin pâine, ci prin spirit. Și spiritul meu poate să nesocotească trupul. Dar foamea tot îl chinuia, și glasul trupului i-a mai spus: dacă ești viu numai prin spirit și poți să nesocotești trupul, atunci poți să te lepezi de trup, și spiritul tău va rămâne viu.
+<!-- vol. 24, p. 821 --> 4. Dar Isus și-a spus: chiar dacă nu pot face pâine din pietre, aceasta înseamnă că nu sunt fiul Dumnezeului trupului, ci fiul Dumnezeului spiritului. Eu sunt viu nu prin pâine, ci prin spirit. Și spiritul meu poate să nesocotească trupul. Dar foamea tot îl chinuia, și glasul trupului i-a mai spus: dacă ești viu numai prin spirit și poți să nesocotești trupul, atunci poți să te lepezi de trup, și spiritul tău va rămâne viu.
 
 9. Și i s-a părut că stă pe acoperișul templului și glasul trupului îi spune: dacă ești fiul Dumnezeului spiritului, atunci aruncă-te de pe templu, nu te vei ucide.
 
