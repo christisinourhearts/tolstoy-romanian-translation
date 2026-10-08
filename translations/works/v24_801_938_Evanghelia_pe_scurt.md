@@ -1616,3 +1616,329 @@ Mat. XXI, 28. Și Isus a spus: învățătura mea este împlinirea voii tatălui
 Dacă un fiu, la poruncile tatălui, tot spune: „ascult, ascult”, dar nu face ceea ce poruncește tatăl, atunci doar nu împlinește voia tatălui.
 
 29. Iar dacă un alt fiu, deși va spune: „nu vreau să ascult”, dar apoi se va duce și va face după porunca tatălui, atunci doar a împlinit voia tatălui. Așa e și la oameni: nu acela este în voia tatălui care spune: eu sunt în voia tatălui, — ci acela care face ceea ce vrea tatăl.
+
+## Capitolul VII EU ȘI TATĂL — UNA
+
+### HRANA ADEVĂRATĂ A VIEȚII NESFÂRȘITE ESTE ÎMPLINIREA VOII TATĂLUI ȘI UNIREA CU EL. (PÂINEA NOASTRĂ CEA SPRE FIINȚĂ DĂ-NE-O NOUĂ.)
+
+#### CUPRINSUL CAPITOLULUI VII
+
+Ca răspuns la cererea iudeilor de a le da dovezi ale adevărului învățăturii sale, Isus spune: adevărul învățăturii mele este dovedit prin aceea că eu nu învăț de la mine, ci de la tatăl comun al tuturor. Eu învăț ceea ce este bine pentru tatăl tuturor oamenilor și de aceea pentru toți oamenii.
+
+<!-- vol. 24, p. 873 --> Faceți ceea ce spun eu, împliniți cele cinci porunci și veți vedea că este adevărat ceea ce spun. Împlinirea celor cinci porunci alungă tot răul din lume, și de aceea e sigur că ele sunt adevărate. E limpede că acela care învață ceea ce nu este voia lui personală, ci voia celui care l-a trimis, e limpede că acela învață adevărul. Legea lui Moise învață împlinirea voii oamenilor, și de aceea este plină de contradicții; iar învățătura mea învață să împlinești voia tatălui, și de aceea ea se reduce toată la unitate.
+
+Iudeii nu l-au înțeles și căutau dovezi exterioare că el însuși este Hristosul despre care este scris în proorocii. La aceasta el le-a spus: nu cercetați cine sunt eu și dacă despre mine este scris în proorociile voastre, ci pătrundeți învățătura mea, ceea ce spun despre tatăl nostru comun. Pe mine, ca om, nu trebuie să mă credeți, dar trebuie să credeți ceea ce spun în numele tatălui comun al tuturor oamenilor. Nu trebuie să cercetați după înfățișare de unde sunt eu, ci trebuie să urmați învățătura mea. Acela care va urma învățătura mea va primi viața adevărată. Dovezi ale învățăturii mele nu pot fi. Ea este lumină. Și precum lumina nu poate fi luminată, tot așa nu se poate dovedi adevărul adevărului. Învățătura mea este — lumină; și cine o vede, acela are lumină și viață și aceluia n-ai ce să-i dovedești. Iar cine este în întuneric, acela trebuie să meargă la lumină.
+
+Dar iudeii l-au întrebat din nou: cine este el după trup? El le-a spus: eu sunt — ceea ce v-am spus de la început. Eu sunt om, fiul tatălui vieții. Numai acela care va înțelege despre sine același lucru și va împlini voia tatălui comun, numai acela va înceta să fie rob și va deveni liber. Pentru că numai greșeala care ia viața trupească drept viața adevărată ne face nelibere. Acela care va înțelege adevărul că viața este numai în împlinirea voii tatălui, numai acela va deveni liber și nemuritor. Precum robul nu rămâne pentru totdeauna în casa stăpânului, iar fiul rămâne pentru totdeauna, tot așa și omul care trăiește ca rob al trupului nu rămâne pentru totdeauna în viață; iar omul care împlinește prin spirit voia tatălui rămâne pentru totdeauna în viață.
+
+Ca să mă înțelegeți, trebuie să înțelegeți că tatăl meu nu este ceea ce este tatăl vostru, acela pe care îl numiți Dumnezeu. Tatăl vostru este un Dumnezeu trupesc, iar tatăl meu este — spiritul vieții. Tatăl vostru Dumnezeu este un Dumnezeu răzbunător, ucigaș de oameni, acela care îi execută pe oameni; iar tatăl meu dă viață. Și de aceea suntem copiii unor tați diferiți. Eu caut adevărul, iar voi vreți să mă ucideți pentru aceasta, ca să-i fiți pe plac Dumnezeului vostru. Dumnezeul vostru este — diavolul, principiul răului, și dacă voi <!-- vol. 24, p. 874 --> îi slujiți lui, atunci îi slujiți diavolului. Iar învățătura mea este că suntem fiii tatălui vieții, și acela care va crede în învățătura mea nu va vedea moartea. Iudeii au spus: cum poate omul să nu moară, dacă toți oamenii cei mai plăcuți lui Dumnezeu, chiar și Avraam, au murit? Cum poți să spui că tu și cei care vor crede în învățătura ta nu vor muri?
+
+La aceasta Isus a răspuns: eu nu spun nimic de la mine. Eu vorbesc despre chiar acel principiu al vieții pe care voi îl numiți Dumnezeu și care este în oameni. Acest principiu îl cunosc și nu se poate să nu-l cunosc, și îi cunosc voia și o împlinesc, și tocmai despre acest principiu al vieții spun că el a fost, și este, și va fi și că pentru el nu există moarte. Cererea de dovezi ale adevărului învățăturii mele seamănă cu situația în care oamenii ar începe să ceară dovezi de la un orb despre de ce și cum a văzut lumina.
+
+Orbul vindecat, rămânând același om care fusese înainte, ar putea spune numai că a fost orb, iar acum vede. Întocmai același lucru, și nimic mai mult, poate spune omul care nu înțelegea înainte sensul vieții sale și l-a înțeles. Un asemenea om ar spune numai că înainte nu cunoștea binele adevărat al vieții, iar acum îl cunoaște. Și precum orbul vindecat, dacă i se va spune că a fost vindecat nu cum trebuie, că omul care l-a vindecat este păcătos, că trebuie să se vindece altfel, vindecatul nu poate spune nimic altceva decât: eu nu știu nimic despre corectitudinea vindecării și despre păcătoșenia celui ce m-a vindecat; despre o altă vindecare, mai bună, știu un singur lucru, că am fost orb, iar acum văd.
+
+Întocmai așa și cel care a pătruns sensul învățăturii despre binele adevărat, despre împlinirea voii tatălui, nu poate spune nimic despre aceea: dacă e corectă această învățătură, dacă e păcătos cel care a descoperit-o și dacă se poate afla un bine și mai bun, — el va spune: înainte nu vedeam sensul vieții, iar acum îl văd și nimic mai mult nu știu.
+
+Și Isus a spus: învățătura mea este trezirea vieții care dormise până atunci, cine va crede în învățătura mea, acela se trezește la viața veșnică și trăiește după moarte.
+
+Învățătura mea nu este dovedită prin nimic, dar oamenii se dau învățăturii mele pentru că numai ea le făgăduiește tuturor oamenilor viață. Precum oile merg după păstorul care le dă oilor hrană și viață, tot așa oamenii primesc învățătura mea, pentru că ea dă viață tuturor. Și precum oile nu merg după hoțul care sare în staul, <!-- vol. 24, p. 875 --> și se feresc speriate de el, tot așa nici oamenii nu pot crede în acele învățături care învață silnicii și execuții. Învățătura mea este ușa pentru oi, și toți cei care vor merge după mine vor găsi viața adevărată. Precum, dintre păstori, buni sunt numai aceia care sunt ei înșiși stăpâni și iubesc oile și își dau viața pentru oi, iar răi sunt cei tocmiți, care nu iubesc oile, tot așa și învățător adevărat este numai acela care nu se cruță pe sine, iar rău este acela care se îngrijește numai de sine. Învățătura mea este să nu te cruți pe tine, ci să-ți dai viața trupească pentru viața spiritului, și eu învăț aceasta și o împlinesc.
+
+Iudeii tot nu-l înțelegeau și tot căutau dovezi exterioare că el este sau nu Hristosul, și de aceea dacă să-l creadă sau nu. Ei spuneau: nu ne chinui și spune-ne de-a dreptul: tu ești Hristosul sau nu? Și la aceasta Isus le-a răspuns: nu cuvintelor trebuie să le credeți, ci faptelor. După faptele pe care le învăț veți înțelege dacă învăț adevărul sau nu. Faceți ce fac eu, și nu cercetați cuvintele. Împliniți voia tatălui, și atunci vă veți uni toți cu mine și cu tatăl, pentru că eu, fiul omului, sunt — același lucru ca și tatăl. Eu nu sunt Hristosul, ci mai mult decât Hristosul, eu sunt același lucru pe care voi îl numiți Dumnezeu și pe care eu îl numesc tată. Eu și tatăl — suntem una. Și în scriptura voastră este spus că Dumnezeu le-a spus oamenilor: voi sunteți Dumnezei. Orice om, după spirit, este fiul tatălui. Și dacă trăiește împlinind voia tatălui, se unește cu tatăl. Dacă eu împlinesc voia lui, atunci tatăl este în mine și eu în tatăl.
+
+După aceasta Isus i-a întrebat pe ucenici cum înțeleg ei învățătura lui despre fiul omului. Simon Petru i-a răspuns: învățătura ta este că tu ești fiul Dumnezeului vieții, că Dumnezeu — este viața spiritului din om.
+
+Și i-a spus Isus: nu eu singur, ci și toți oamenii; și nu eu le-am descoperit aceasta oamenilor, ci tatăl comun al oamenilor. Pe această înțelegere se întemeiază viața adevărată a oamenilor. Pentru această viață nu există moarte.
+
+Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte, și Isus a plecat în Galileea și a trăit cu rudele sale.
+
+2. A venit sărbătoarea iudeiască a înnoirii colibei.
+
+3. Și frații lui Isus s-au pregătit să meargă la sărbătoare și au început să-l cheme cu ei pe Isus.
+
+5. Ei nu credeau în învățătură și îi spuneau: iată, tu spui că slujirea iudeiască a lui Dumnezeu nu este dreaptă și că tu cunoști <!-- vol. 24, p. 876 --> slujirea adevărată a lui Dumnezeu prin faptă. Dacă într-adevăr crezi că nimeni în afară de tine nu cunoaște slujirea adevărată a lui Dumnezeu, atunci haide cu noi la sărbătoare; acolo va fi mult popor, — iată, acolo, înaintea întregului popor, vestește că învățătura lui Moise este mincinoasă. Dacă toți te vor crede, atunci și ucenicilor tăi le va fi limpede că ai dreptate.
+
+4. Altfel de ce să te ascunzi. Tu spui că slujirea noastră a lui Dumnezeu este mincinoasă, că tu cunoști slujirea adevărată a lui Dumnezeu. Ei bine, arat-o tuturor.
+
+6. Și Isus le-a spus: pentru voi există o vreme și un loc anume pentru slujirea lui Dumnezeu, dar pentru mine nu există o vreme anume pentru slujirea lui Dumnezeu. Eu întotdeauna și pretutindeni lucrez pentru Dumnezeu.
+
+7. Tocmai aceasta le și arăt oamenilor, le arăt că slujirea lor a lui Dumnezeu este mincinoasă, și tocmai pentru aceasta mă urăsc.
+
+8. Voi mergeți la sărbătoare, iar eu voi merge când îmi va veni.
+
+9. Și frații au plecat, iar el a rămas și a venit abia mai târziu, la mijlocul sărbătorii.
+
+11. Și iudeii se tulburau că el nu le cinstește sărbătoarea și nu a venit.
+
+12. Și se certau mult despre învățătura lui. Unii spuneau că el spune adevărul, iar alții spuneau că el numai tulbură poporul.
+
+14. La jumătatea sărbătorii Isus a intrat în templu și a început să învețe poporul că slujirea lor a lui Dumnezeu este mincinoasă, că lui Dumnezeu trebuie să-i slujești nu în templu și prin jertfe, ci în spirit și prin faptă, prin împlinirea celor cinci porunci.
+
+15. Toți îl ascultau și se mirau că el, fără să fi învățat, cunoaște toată înțelepciunea.
+
+16. Și Isus, auzind că ei se mirau de înțelepciunea lui, le-a spus: învățătura mea — nu este a mea, ci a celui care m-a trimis.
+
+17. Dacă cineva va vrea să împlinească voia acelui spirit care ne-a trimis în viață, acela va afla că nu eu am născocit aceasta, ci că această învățătură este de la Dumnezeu.
+
+18. Pentru că acela care a născocit de la sine, acela caută ceea ce i se pare lui, iar acela care caută ceea ce i se pare celui care l-a trimis, acela este drept și nu este în el nedreptate.
+
+19. Legea voastră a lui Moise nu este legea tatălui, și de aceea cei care o urmează nu împlinesc legea tatălui și fac răul și minciuna.
+
+21. Eu vă învăț împlinirea singurei voi a tatălui, și în învățătura mea nu poate fi contradicție.
+
+<!-- vol. 24, p. 877 --> 22, 23. Iar legea voastră scrisă a lui Moise este toată plină de contradicții.
+
+24. Nu judecați după înfățișare, ci judecați după spirit.
+
+25. Și mulți au spus: totuși, iată, se spunea că el este un profet mincinos, și iată, el osândește legea, și nimeni nu-i spune nimic.
+
+26. Poate că într-adevăr el este cel adevărat, poate că și căpeteniile l-au recunoscut.
+
+27. Numai pentru un singur lucru nu se poate să-l credem, că este spus: când va veni trimisul de la Dumnezeu, nimeni nu va ști de unde este, iar noi știm de unde e de neam și toate rudele lui. Poporul tot nu-i înțelegea învățătura și tot căuta dovezi.
+
+28. Atunci le-a spus Isus: mă cunoașteți și știți de unde sunt după trup, dar nu știți de unde sunt după spirit. Iată, tocmai pe acela de la care sunt după spirit nu-l cunoașteți, și numai pe acela trebuie să-l cunoașteți.
+
+29. Dacă v-aș spune că eu sunt Hristosul, m-ați crede pe mine, omul, și nu l-ați crede pe tatăl, care este în mine și în voi. Iar trebuie să-l credeți numai pe tatăl.
+
+33. Eu sunt aici, între voi, nu pentru multă vreme a vieții mele, vă arăt calea spre acel izvor al vieții din care am ieșit.
+
+34. Iar voi îmi cereți dovezi și vreți să mă osândiți. Dacă nu cunoașteți această cale, atunci, când nu voi mai fi, n-o veți mai găsi nicidecum. Nu trebuie să mă judecați pe mine, ci trebuie să mergeți după mine. Cine va face ceea ce spun eu, acela va afla dacă este adevărat ceea ce vă spun.
+
+38. Acela pentru care viața trupească nu a devenit hrană a spiritului, acela nu caută adevărul cum caută însetatul apa, acela nu mă poate înțelege. Iar acela care însetează după adevăr, acela să vină la mine și să bea. Și acela care va crede în învățătura mea va primi viața adevărată.
+
+39. Acela va primi viața spiritului.
+
+40. Și mulți au crezut în învățătura lui și spuneau: ceea ce spune el este adevăr și de la Dumnezeu.
+
+42. Alții nu-l înțelegeau și tot căutau în proorocii dovezi că el este trimis de la Dumnezeu.
+
+43. Și mulți se certau cu el, dar nimeni nu-l putea combate.
+
+44. Ortodocșii învățați și-au trimis ajutoarele să se întreacă cu el.
+
+45. Dar ajutoarele lor s-au întors la arhiereii ortodocși și au spus: nu putem face nimic cu el. Și arhiereii au spus: de ce nu l-ați dat de gol?
+
+<!-- vol. 24, p. 878 --> 46. Și aceia au răspuns: niciodată niciun om n-a vorbit cum vorbește el.
+
+47. Atunci au spus ortodocșii: nu înseamnă nimic faptul că el nu poate fi combătut și că poporul crede în învățătura lui.
+
+48. Noi nu credem, și niciuna din căpetenii nu crede.
+
+49. Iar poporul blestemat a fost întotdeauna prost și neînvățat, crede pe oricine.
+
+50. Și le-a spus arhiereilor Nicodim, acela căruia Isus îi tâlcuise învățătura sa:
+
+51. Nu se poate osândi un om fără să-l asculți și să înțelegi unde bate.
+
+52. Iar ei i-au spus: n-avem ce judeca și asculta. Știm că un profet nu poate fi din Galileea.
+
+Ioan VIII, 12. Altă dată Isus vorbea cu ortodocșii și le-a spus: dovezi ale adevărului învățăturii mele nu pot fi, cum nu poate fi luminată lumina. Învățătura mea este lumina adevărată, la care oamenii văd ce e bine și ce e rău, și de aceea învățătura mea nu poate fi dovedită; ea dovedește tot restul. Cine va merge după mine nu va fi în întuneric, ci acela va avea viață. Viața și lumina sunt unul și același lucru.
+
+13. Dar ortodocșii au spus: numai tu spui aceasta.
+
+14. Și el le-a răspuns: chiar dacă numai eu spun aceasta, totuși adevărul este al meu, pentru că știu de unde am venit și unde mă duc. După învățătura mea, viața are sens, iar după a voastră nu are.
+
+18. Pe lângă aceasta, nu învăț eu singur, ci același lucru îl învață tatăl meu, spiritul.
+
+19. Ei au spus: unde este tatăl tău? El a spus: voi nu înțelegeți învățătura mea și de aceea nu-l cunoașteți pe tatăl meu.
+
+21. Nu știți de unde sunteți și unde mergeți. Eu vă duc, iar voi, în loc să mergeți după mine, cercetați cine sunt eu, și de aceea nu puteți ajunge la mântuirea și la viața spre care vă duc.
+
+24. Și veți pieri, dacă veți rămâne în această rătăcire și nu veți merge după mine.
+
+25. Și iudeii au întrebat: cine ești tu? El a spus: chiar de la început vă spun:
+
+26. Eu sunt fiul omului, care recunoaște spiritul drept tatăl său; și ceea ce am înțeles de la tatăl, aceea spun lumii.
+
+28. Și când îl veți înălța în voi pe fiul omului, atunci veți afla ce sunt eu, pentru că eu fac și spun nu de la mine, ca om, ci ceea ce m-a învățat tatăl, aceea spun, aceea învăț.
+
+<!-- vol. 24, p. 879 --> 29. Și acela care m-a trimis, acela este întotdeauna cu mine, și tatăl nu mă va părăsi, pentru că fac voia lui.
+
+31. Acela care se va ține de înțelegerea mea, cine va împlini voia tatălui, acela va fi cu adevărat învățat de mine. Pentru cunoașterea adevărului trebuie să faci bine oamenilor. Acela care face rău oamenilor, acela iubește întunericul și merge spre el; cine face bine oamenilor, acela merge spre lumină. Și de aceea, ca să înțelegi învățătura mea, trebuie să săvârșești faptele binelui.
+
+32. Acela care va face binele, acela va cunoaște adevărul, acela va fi liber de rău și de moarte.
+
+34. Pentru că oricine rătăcește, acela devine robul rătăcirii sale.
+
+35. Și precum robul nu trăiește pentru totdeauna în casa stăpânului, iar fiul stăpânului este întotdeauna în casă, tot așa și omul, dacă a rătăcit în viață și devine robul rătăcirilor sale, nu trăiește pentru totdeauna, ci moare. Numai acela care este în adevăr, numai acela rămâne viu pentru totdeauna. Iar adevărul este să fii nu rob, ci fiu. Așa încât, dacă veți rătăci, veți fi robi și veți muri.
+
+36. Iar dacă veți fi în adevăr, veți fi fii liberi și veți fi vii.
+
+37. Voi spuneți despre voi că sunteți fiii lui Avraam, că cunoașteți adevărul. Iar iată, voi vreți să mă ucideți, pentru că nu înțelegeți învățătura mea.
+
+38. Și iese că eu spun ceea ce am înțeles de la tatăl meu, iar voi vreți să faceți ceea ce ați înțeles de la tatăl vostru.
+
+39. Ei au spus: tatăl nostru este Avraam. Le-a spus Isus: dacă ați fi fiii lui Avraam, i-ați face faptele.
+
+40. Iar iată, voi vreți să mă ucideți pentru că v-am spus ceea ce am înțeles de la Dumnezeu. Avraam n-a făcut așa. Prin urmare, voi nu lui Dumnezeu îi slujiți, ci îi slujiți tatălui vostru — altuia.
+
+41. Ei i-au spus: noi nu suntem copii de curvă, ci suntem toți copiii unui singur tată, toți ai lui Dumnezeu.
+
+42. Și le-a spus Isus: dacă tatăl vostru ar fi unul cu al meu, m-ați iubi, pentru că eu am ieșit de la tatăl. Doar nu m-am născut singur de la mine însumi.
+
+43. Voi nu sunteți copiii aceluiași tată ca și mine, de aceea nici nu înțelegeți cuvintele mele și nu încape în voi înțelegerea mea. Dacă eu sunt de la tatăl și voi sunteți de la același tată, nu puteți dori să mă ucideți. Iar dacă doriți să mă ucideți, atunci nu suntem de la același tată.
+
+<!-- vol. 24, p. 880 --> 44. Eu sunt de la tatăl binelui, Dumnezeu, iar voi de la diavol, de la tatăl răului. Voi vreți să faceți poftele tatălui vostru, diavolul; el a fost întotdeauna ucigaș și mincinos, și nu este în el adevăr. Dacă spune ceva diavolul, el spune ceea ce e al lui personal, și nu ceea ce e comun tuturor, și el este tatăl minciunii. De aceea voi sunteți slugile diavolului și fiii lui.
+
+46. Iată, vedeți cât de ușor e să vă dai de gol în rătăcire. Iar dacă eu rătăcesc, dați-mă de gol. Iar dacă nu e rătăcire în mine, de ce nu mă credeți?
+
+48. Și au început iudeii să-l ocărască și spuneau că e turbat.
+
+49. El a spus: eu nu sunt turbat, ci îl cinstesc pe tatăl, iar voi vreți să mă ucideți, prin urmare nu-mi sunteți frați, ci copii ai altui tată.
+
+50. Nu eu afirm că am dreptate, ci adevărul vorbește pentru mine.
+
+51. Și de aceea vă repet: acela care va pătrunde și va săvârși învățătura mea nu va vedea moartea.
+
+52. Și iudeii au spus: ei, oare nu spunem adevărul, că tu ești un samaritean turbat? Te dai singur de gol. Profeții au murit, Avraam a murit, iar tu spui că cine va săvârși învățătura ta nu va vedea moartea.
+
+53. Avraam a murit, iar tu nu vei muri? Ori ești tu mai mare decât Avraam?
+
+54. Iudeii tot chibzuiau dacă el, Isus din Galileea, este un profet însemnat sau neînsemnat, și uitau tot ce le spunea el, că el nu spune nimic despre sine, ca om, ci vorbește despre spiritul care era în el. Și Isus a spus: eu nu mă fac nimic. Dacă aș vorbi despre mine, despre ceea ce mi se pare mie, atunci tot ce aș spune n-ar însemna nimic, dar există acel principiu a toate pe care voi îl numiți Dumnezeu, tocmai despre el vorbesc eu.
+
+55. Iar voi nu l-ați cunoscut și nu-l cunoașteți pe Dumnezeul adevărat, dar eu îl cunosc. Și nu pot să spun că nu-l cunosc. Aș fi un mincinos, la fel ca voi, dacă aș spune că nu-l cunosc. Eu îl cunosc și îi cunosc voia și o împlinesc.
+
+56. Avraam, tatăl vostru, a văzut și s-a bucurat de înțelegerea mea.
+
+57. Iudeii au spus: tu ai cincizeci de ani, cum ai putut trăi pe vremea lui Avraam?
+
+58. El a spus: mai înainte de a fi fost Avraam, a fost înțelegerea binelui, aceea despre care vă vorbesc.
+
+59. Iudeii au apucat pietre ca să-l omoare cu ele, dar el a plecat de la ei.
+
+<!-- vol. 24, p. 881 --> Ioan IX, 1. Și pe drum Isus a văzut un om întunecat din naștere.
+
+2. Și l-au întrebat ucenicii: cine e vinovat că omul acesta este întunecat din naștere? el sau părinții lui, pentru că nu l-au învățat?
+
+3. Și a răspuns Isus: nu sunt vinovați nici părinții lui, nici el însuși, ci în aceasta stă lucrul lui Dumnezeu, ca să fie lumină acolo unde a fost întuneric.
+
+5. Dacă există învățătura mea, atunci ea este lumina lumii.
+
+6, 7. Și Isus i-a descoperit celui întunecat învățătura că el este fiul Dumnezeului spirit, și, cunoscând această învățătură, cel întunecat a cunoscut lumina.
+
+8, 9. Și cei care îl cunoșteau înainte pe acest om nu l-au recunoscut. Semăna cu cel de mai înainte, dar devenise alt om.
+
+11. Iar el a spus: eu sunt același, dar Isus mi-a descoperit că sunt fiul lui Dumnezeu, și mi s-a descoperit lumina, și am văzut ceea ce nu vedeam înainte.
+
+13. L-au chemat pe acest om la învățătorii ortodocși.
+
+14. Iar era sâmbătă.
+
+15. Și îl întrebau ortodocșii cum de a început să înțeleagă totul, când înainte fusese întunecat. El a spus: nu știu cum, dar știu că acum înțeleg totul.
+
+16. Ei au spus: tu nu înțelegi aceasta după Dumnezeu, pentru că aceasta a făcut-o Isus sâmbăta; și nici nu poate un om lumesc să-i lumineze pe oameni. Și au început să se certe.
+
+17. Și apoi l-au întrebat pe cel luminat: ce crezi tu despre el? El a spus: cred că este profet.
+
+18. Iudeii n-au crezut că el fusese înainte întunecat, iar acum s-a luminat, până ce nu i-au chemat pe părinții lui și nu i-au întrebat.
+
+19. Acesta este fiul vostru, cel care a fost întunecat din naștere. Cum de s-a luminat acum?
+
+20. Părinții au spus: știm că acesta este fiul nostru și că a fost întunecat din naștere.
+
+21. Iar cum s-a luminat acum, nu știm. El e de-acum mare, întrebați-l pe el însuși.
+
+24. I-au chemat ortodocșii a doua oară pe omul acela și au spus: roagă-te adevăratului nostru Dumnezeu, iar omul acela care te-a luminat, omul acela este lumesc și nu este de la Dumnezeu, știm sigur.
+
+25. Și cel luminat a spus: despre faptul dacă omul acela este de la Dumnezeu sau nu, aceasta nu știu. Un lucru știu, că înainte nu vedeam lumina, iar acum văd.
+
+<!-- vol. 24, p. 882 --> 26. Și ortodocșii l-au întrebat din nou: ce ți-a făcut, cum te-a luminat?
+
+27. El a spus: v-am spus deja, dar voi nu credeți. Dacă vreți să fiți ucenicii lui, vă voi povesti din nou.
+
+28. Și ei au început să-l ocărască și au spus: tu ești ucenicul lui, iar noi suntem ucenicii lui Moise.
+
+29. Cu Moise a vorbit Dumnezeu însuși. Iar despre acesta nici nu știm de unde este.
+
+30. Și a răspuns omul și a spus: tocmai aceasta e de mirare, că el m-a luminat, iar voi nu știți de unde este.
+
+31. Dumnezeu nu-i ascultă pe păcătoși, ci pe cei care îl cinstesc pe Dumnezeu și îi împlinesc voia.
+
+33. Nu se poate niciodată ca un om care nu este de la Dumnezeu să poată lumina un om întunecat. Dacă n-ar fi de la Dumnezeu, n-ar putea face nimic.
+
+34. Și s-au mâniat ortodocșii și au spus: tu ești tot înglodat în rătăciri și vrei să ne înveți pe noi. Și l-au dat afară.
+
+Ioan XI, 25. Și a spus Isus: învățătura mea este trezirea vieții. Cine crede în învățătura mea, acela, deși moare trupește, rămâne viu, și oricine trăiește și crede în mine, acela nu va muri.
+
+X, 1. Și a treia oară Isus a învățat poporul. El spunea: oamenii se dau învățăturii mele nu pentru că o dovedesc eu însumi. Adevărul nu se poate dovedi. Adevărul dovedește tot restul. Dar oamenii se dau învățăturii mele pentru că ea este unică și cunoscută oamenilor și făgăduiește viață.
+
+2, 3. Învățătura mea este pentru oameni ca glasul cunoscut al păstorului pentru oi, când el intră la ele pe ușă și le adună, ca să le ducă la pășune.
+
+5. Iar învățăturii voastre nimeni nu-i crede pentru că ea este străină oamenilor, și oamenii văd în ea poftele voastre. Ea este pentru oameni același lucru ca pentru oi înfățișarea unui om care nu intră pe ușă, ci sare peste gard. Oile nu-l cunosc, dar simt că e tâlhar.
+
+7. Învățătura mea este singura adevărată, ca singura ușă pentru oi.
+
+8. Toate învățăturile voastre ale legii lui Moise, toate sunt minciună, toate sunt ca hoții și tâlharii pentru oi.
+
+9. Cine se dă învățăturii mele, acela va găsi viața adevărată, cum vor ieși oile și vor găsi hrană, dacă vor merge după păstor.
+
+<!-- vol. 24, p. 883 --> 10. Pentru că hoțul vine numai ca să fure, să jefuiască și să piardă, iar păstorul ca să dea viață. Și numai învățătura mea făgăduiește și dă viața adevărată.
+
+11. Sunt păstori pentru care oile sunt viața lor și care își dau viața pentru oi, — aceștia sunt păstorii adevărați.
+
+12. Dar sunt și tocmiți, care nu se îngrijesc de oi, pentru că sunt tocmiți și oile nu sunt ale lor, de așa fel încât, dacă vine lupul, le părăsesc și fug de ele, iar lupul pierde oile.
+
+13. Aceștia nu sunt adevărați; tot așa și învățătorii sunt neadevărați, cărora nu le pasă de viața oamenilor, și adevărați — aceia care își dau sufletul pentru viața oamenilor.
+
+14. Eu sunt — un asemenea învățător.
+
+17. Învățătura mea este să-ți dai viața pentru oameni.
+
+18. Nimeni nu mi-o va lua, ci eu singur o dau liber pentru oameni, ca să primesc viața adevărată. Această poruncă am primit-o de la tatăl meu.
+
+15. Și precum mă cunoaște tatăl, așa îl cunosc și eu pe tatăl, și de aceea îmi pun viața pentru oameni.
+
+17. Tocmai pentru aceasta mă iubește tatăl, că împlinesc poruncile lui.
+
+16. Și toți oamenii, nu numai aici și acum, ci toți vor înțelege glasul meu și toți se vor aduna într-una și vor fi una toți oamenii și una învățătura lor.
+
+24. Și iudeii l-au înconjurat și au spus: tot ce spui e greu de înțeles și nu se potrivește cu scriptura noastră. Nu ne chinui, ci spune-ne simplu și de-a dreptul: ești tu acel mesia care, după scriptura noastră, trebuie să vină în lume?
+
+25. Și le-a răspuns Isus: v-am spus deja cine sunt, dar voi nu credeți. Dacă nu credeți cuvintelor mele, credeți faptelor mele, după ele veți înțelege; cine sunt și pentru ce am venit.
+
+26. Dar voi nu credeți, pentru că nu mergeți după mine.
+
+27. Cine merge după mine și face ceea ce spun, acela mă înțelege.
+
+28. Și cine înțelege învățătura mea și o împlinește, acela primește viața adevărată.
+
+29. Tatăl meu i-a unit cu mine, și nimeni nu ne poate despărți.
+
+30. Eu și tatăl — suntem una.
+
+31. Și iudeii s-au simțit jigniți de aceasta și au pus mâna pe pietre ca să-l omoare.
+
+<!-- vol. 24, p. 884 --> 32. Dar el le-a spus: multe fapte bune v-am arătat, v-am descoperit prin învățătura despre tatăl meu; pentru care dintre aceste fapte bune vreți să mă ucideți cu pietre?
+
+33. Ei au spus: nu pentru bine vrem să te ucidem cu pietre, ci pentru că tu, om fiind, te faci Dumnezeu.
+
+34. Și le-a răspuns Isus: păi chiar aceasta este spus în scriptura voastră. Este spus că Dumnezeu însuși le-a spus cârmuitorilor răi: voi sunteți Dumnezei.
+
+35. Dacă el i-a numit Dumnezei chiar pe oamenii stricați, atunci de ce socotiți voi blasfemie a numi fiu al lui Dumnezeu ceea ce Dumnezeu, iubind, a trimis în lume.
+
+[36—38.] Orice om, după spirit, este fiul lui Dumnezeu. Dacă eu nu trăiesc după Dumnezeu, nu credeți că sunt fiul lui Dumnezeu, iar dacă trăiesc după Dumnezeu, atunci, după viața mea, credeți că sunt în tatăl, și atunci veți înțelege că tatăl este în mine și eu în el.
+
+Ioan XI, 25. Și a spus Isus: învățătura mea este trezirea vieții. Cine crede în învățătura mea, acela, deși moare trupește, rămâne viu, și oricine trăiește și crede în mine, acela nu va muri.
+
+X, 20. Și au început iudeii să se certe. Unii spuneau că el e îndrăcit.
+
+21. Alții spuneau: nu poate un turbat să-i lumineze pe oameni.
+
+39. Și iudeii nu știau ce să facă cu el, și nu-l puteau osândi.
+
+40. Și s-a dus iar dincolo de Iordan și a rămas acolo.
+
+41. Și mulți au crezut în învățătura lui și spuneau că ea este adevărată la fel ca învățătura lui Ioan.
+
+42. Și astfel mulți credeau în învățătura lui.
+
+Mt. XVI, 13. Și i-a întrebat odată Isus pe ucenicii săi: spuneți-mi, cum înțeleg oamenii învățătura mea despre fiul lui Dumnezeu și despre fiul omului?
+
+14. Ei au spus: unii o înțeleg ca învățătura lui Ioan, alții la fel ca proorocia lui Isaia, alții iarăși spun că seamănă cu învățătura lui Ieremia, înțeleg că tu ești profet.
+
+15. El a spus: dar voi cum înțelegeți învățătura mea?
+
+16. Și i-a spus Simon Petru: după mine, învățătura ta este că tu ești fiul ales al Dumnezeului vieții. Tu înveți că Dumnezeu este viața din om.
+
+17. Și i-a spus Isus: fericit ești, Simon, că ai înțeles aceasta. Omul nu ți-a putut descoperi aceasta, ci ai înțeles-o pentru că <!-- vol. 24, p. 885 --> Dumnezeu din tine ți-a descoperit-o. Nu judecata trupească și nu eu prin cuvintele mele ți-am descoperit aceasta, ci Dumnezeu, tatăl meu, ți-a descoperit-o de-a dreptul.
+
+18. Și pe aceasta se întemeiază acea adunare a oamenilor aleși pentru care nu există moarte.
