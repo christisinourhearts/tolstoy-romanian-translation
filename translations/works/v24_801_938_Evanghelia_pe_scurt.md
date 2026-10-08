@@ -2920,3 +2920,227 @@ Ioan XVII, 1. După aceasta Isus și-a ridicat ochii spre cer și a spus: tatăl
 25. Tată drept! lumea nu te-a cunoscut, dar eu te-am cunoscut, și ei te-au cunoscut prin mine.
 
 26. Și le-am lămurit ce ești tu. Tu ești aceea, ca iubirea cu care m-ai iubit pe mine să fie în ei. Tu le-ai dat viață, prin urmare i-ai iubit. Eu i-am învățat să cunoască aceasta și să te iubească pe tine așa încât iubirea ta pentru ei să se întoarcă de la ei la tine.
+
+## Capitolul XII BIRUINȚA SPIRITULUI ASUPRA TRUPULUI
+
+### ȘI DE ACEEA, PENTRU OMUL CARE TRĂIEȘTE NU CU O VIAȚĂ PERSONALĂ, CI CU VIAȚA COMUNĂ, ÎN VOIA TATĂLUI, NU EXISTĂ RĂU. MOARTEA TRUPEASCĂ ESTE UNIREA CU TATĂL. (CĂ A TA ESTE ÎMPĂRĂȚIA, PUTEREA ȘI SLAVA.)
+
+#### CUPRINSUL CAPITOLULUI XII
+
+Când Isus și-a încheiat cuvântarea către ucenici, s-a ridicat și, în loc să fugă sau să se apere, a pornit în întâmpinarea lui Iuda, <!-- vol. 24, p. 925 --> care adusese soldați ca să-l prindă. Isus s-a apropiat de el și l-a întrebat de ce este aici. Dar Iuda nu a răspuns, și mulțimea de soldați l-a înconjurat pe Isus. Petru s-a repezit să-și apere învățătorul și, smulgând un cuțit, a început să se bată; dar Isus l-a oprit pe Petru și i-a spus că acela care se bate cu cuțitul trebuie să piară el însuși de cuțit, și i-a poruncit să dea cuțitul înapoi. Și apoi Isus le-a spus celor care veniseră să-l prindă: eu și înainte umblam singur printre voi și nu mă temeam, și nici acum nu mă tem de voi și mă dau vouă. Puteți face ce vreți. Și când toți ucenicii s-au risipit, Isus a rămas singur. Căpetenia soldaților a poruncit să-l lege pe Isus și să-l ducă la Ana. Ana fusese înainte arhiereu și locuia în aceeași curte cu Caiafa. Iar Caiafa era în vremea aceea arhiereu. Tocmai el născocise argumentul după care hotărâseră să-l ucidă pe Isus, că, dacă nu-l vor ucide, va pieri tot poporul. Isus, simțindu-se în voia tatălui, era gata de moarte și nu s-a împotrivit când l-au prins, și nu s-a temut când l-au dus; dar chiar Petru acela care abia îi făgăduise lui Isus că nu se va lepăda de el și va muri pentru el, chiar acela care voise să-l apere pe Isus, acum, când a văzut că Isus este dus la execuție, s-a speriat că îl vor executa și pe el, și la întrebările oamenilor din curte dacă n-a fost și el cu Isus, s-a lepădat și a plecat de la el, și numai după aceea, când a cântat cocoșul, Petru a înțeles tot ce îi spusese Isus. A înțeles că sunt două ispite ale trupului: frica și silnicia și că cu ele se luptase Isus când se ruga în grădină și îi chema pe ucenici să se roage. Și iată, acum el căzuse în amândouă ispitele trupului, de care îl prevenise Isus: voise să apere adevărul prin silnicie, voise să se bată și să facă rău și acum n-a rezistat fricii de suferințele trupești și s-a lepădat de învățător. Isus nu s-a lăsat în voia ispitei silniciei, nici când ucenicii pregătiseră două cuțite ca să-l apere, nici a ispitei fricii de oameni, în Ierusalim, înaintea păgânilor și acum înaintea soldaților, când l-au legat și l-au dus la judecată.
+
+Isus a fost adus la Caiafa. Caiafa a început să-l cerceteze în ce constă învățătura lui. Dar Isus, știind că Caiafa îl întreabă nu ca să afle în ce constă învățătura, ci numai ca să-l învinuiască, nu a răspuns, ci a spus: eu n-am ascuns nimic și nu ascund, dacă vrei să știi în ce constă învățătura mea, întreabă-i pe cei care au auzit-o și au înțeles-o. Pentru aceasta paznicul arhiereului l-a lovit pe Isus peste obraz, și Isus l-a întrebat de ce îl bate. Dar acela nu i-a răspuns, și arhiereul a continuat <!-- vol. 24, p. 926 --> să judece. Au adus martori, și martorii mărturiseau că Isus se lăuda că a nimicit credința iudaică. Și arhiereii îl cercetau pe Isus, dar el, văzând că nu-l întreabă ca să afle ceva, ci numai ca să dea înfățișarea unei judecăți drepte, nu răspundea nimic.
+
+Atunci arhiereul l-a întrebat: spune-mi, tu ești Hristosul, fiul lui Dumnezeu? Isus a spus: da, eu sunt omul — fiul lui Dumnezeu, și acum, chinuindu-mă, veți vedea că omul poate fi egal cu Dumnezeu. Și arhiereul s-a bucurat de aceste cuvinte și le-a spus celorlalți judecători: ajung aceste cuvinte ca să-l osândim? Și judecătorii au spus: ajung, și îl osândim la moarte. Și când au spus aceasta, tot poporul s-a năpustit asupra lui Isus și a început să-l bată, să-l scuipe în față și să-l batjocorească. El tăcea.
+
+Iudeii nu aveau dreptul să-i execute pe oameni prin moarte; le trebuia îngăduință de la căpetenia romană, și de aceea, după ce l-au osândit în felul lor și și-au bătut joc de el, l-au dus la căpetenia romană Pilat, ca el să-l execute pe Isus. Pilat i-a întrebat de ce vor să-l ucidă. Ei au spus: pentru că e un om rău. Pilat spune: dacă e un om rău, judecați-l după legea voastră. Ei au spus: vrem ca tu să-l execuți, pentru că este vinovat față de cezarul roman: este un răzvrătitor, tulbură poporul, oprește să se plătească birurile cezarului și se numește împăratul iudeilor. Pilat l-a chemat la sine pe Isus și a spus: ce înseamnă aceasta, că tu ești împăratul iudeilor? Isus a spus: vrei într-adevăr să știi ce înseamnă împărăția mea? Sau vrei să mă întrebi de formă? Pilat a spus: eu nu sunt iudeu, și mi-e totuna dacă te numești sau nu împăratul iudeilor; dar te întreb ce fel de om ești și de ce spun ei că ești împărat? Isus a spus: ei spun adevărul, că mă numesc împărat. Eu sunt într-adevăr împărat, dar împărăția mea nu este pământească, ci cerească. Împărații pământești se bat și se luptă și au oști, dar vezi: pe mine m-au legat și m-au bătut, și eu nu m-am împotrivit lor. Eu sunt împărat ceresc, sunt atotputernic prin spirit.
+
+Pilat a spus: deci, prin urmare, e adevărat că te socotești împărat? Isus a spus: tu singur știi aceasta. Oricine trăiește prin adevăr, acela este liber și de aceea împărat. Eu numai prin aceasta trăiesc și numai aceasta învăț, să le descopăr oamenilor adevărul că ei sunt liberi prin spirit. Pilat a spus: tu înveți adevărul, dar nimeni nu știe ce este adevărul, și fiecare are adevărul său, și, spunând aceasta, s-a întors și a plecat de la Isus iarăși la iudei. Ieșind la <!-- vol. 24, p. 927 --> iudei, Pilat a spus: n-am găsit nimic vinovat în acest om. Pentru ce să-l execut? Arhiereii au spus: trebuie executat pentru că răzvrătește poporul. Atunci Pilat, de față cu arhiereii, a început să-l cerceteze pe Isus; dar Isus, văzând că aceasta este o cercetare numai de formă, n-a răspuns nimic. Atunci Pilat a spus: eu singur nu-l pot osândi; duceți-l la Irod.
+
+La judecata lui Irod, Isus de asemenea n-a răspuns nimic la învinuirile arhiereilor, și Irod, socotindu-l pe Isus un om de nimic, a poruncit să fie îmbrăcat în batjocură într-o haină roșie și l-a trimis înapoi la Pilat. Lui Pilat îi era milă de Isus; a început să-i înduplece pe arhierei să-l ierte pe Isus măcar pentru sărbătoare, dar arhiereii nu se lăsau de ale lor, și toți, și poporul după ei, strigau să-l răstignească pe Isus pe cruce. Pilat a început a doua oară să-i înduplece să-l elibereze pe Isus, dar arhiereii și poporul strigau că nu se poate să nu-l execute. Ei au spus: el este vinovat pentru că se numește fiul lui Dumnezeu. Pilat l-a chemat din nou pe Isus și l-a întrebat: ce înseamnă că te numești fiul lui Dumnezeu? Cine ești tu? Isus n-a răspuns nimic. Atunci Pilat a spus: cum nu-mi răspunzi, când eu am puterea să te execut sau să te eliberez? Isus a răspuns: tu nu ai putere asupra mea. Puterea este numai de sus. Și Pilat a treia oară a început să-i înduplece pe iudei să-l elibereze pe Isus, dar ei i-au spus: dacă nu-l execuți pe omul pe care l-am arătat ca răzvrătitor împotriva cezarului, atunci tu însuți nu ești prieten, ci dușman al cezarului. Și, auzind aceste cuvinte, Pilat s-a supus și a poruncit să-l execute pe Isus. Dar mai întâi l-a dezbrăcat pe Isus și l-a bătut cu nuiele și apoi iarăși l-a îmbrăcat într-o haină de măscărici; și îl băteau, și râdeau, și își băteau joc de el. Și apoi i-au dat să ducă crucea și l-au dus la locul de execuție, și acolo l-au răstignit pe cruce.
+
+Și când Isus atârna pe cruce, tot poporul își bătea joc de el. Și la aceste batjocuri el a răspuns: tată! nu le cere socoteală: ei nu știu ce fac. Și apoi, când era deja aproape de moarte, a spus: tatăl meu! în puterea ta îmi dau spiritul. Și, plecându-și capul, și-a dat duhul.
+
+Mt. XXVI, 46. Și după aceasta Isus a spus: acum ridicați-vă și haideți, iată, vine acela care mă va vinde.
+
+47. Și abia a spus aceasta, că deodată s-a arătat Iuda, unul dintre cei doisprezece ucenici, și cu el o mulțime mare de popor cu ciomege și cu cuțite.
+
+<!-- vol. 24, p. 928 --> 48. Iuda le spusese: vă voi duce acolo unde este el cu ucenicii; iar ca să-l cunoașteți dintre toți, băgați de seamă: pe cine îl voi săruta întâi, acela este chiar el.
+
+49. Și îndată s-a apropiat de Isus și a spus: bună ziua, învățătorule! și l-a sărutat.
+
+50. Și Isus i-a spus: tovarășe! de ce ești aici? Atunci straja l-a înconjurat pe Isus și a vrut să-l prindă.
+
+51. Și aici Petru a smuls un cuțit de la sluga arhiereului și i-a tăiat urechea.
+
+52. Isus a spus: nu trebuie să vă împotriviți răului. Lăsați aceasta. Și i-a spus lui Petru: dă sabia înapoi celui de la care ai luat-o. Cine va pune mâna pe sabie, acela de sabie va și pieri.
+
+55. Și după aceasta Isus s-a întors către toată mulțimea și a spus: de ce ați venit asupra mea cu arme, ca asupra unui tâlhar? Doar în fiecare zi eram printre voi în templu și vă învățam, și nu m-ați prins.
+
+Luc. XXII, 53. Dar acum este ceasul vostru și puterea întunericului.
+
+Mt. XXVI, 56. Atunci, văzând că el este prins, toți ucenicii s-au risipit.
+
+Ioan XVIII, 12. Atunci căpetenia le-a poruncit soldaților să-l prindă pe Isus și să-l lege. Soldații l-au legat și
+
+13. l-au dus întâi la Ana, acesta era socrul lui Caiafa, iar Caiafa era mare preot în anul acela și locuia în aceeași curte cu Ana. Acesta era chiar Caiafa acela care născocise cum să-l piardă pe Isus. El născocise că e folositor pentru popor să-l piardă pe Isus, pentru că, dacă nu-l vor pierde pe Isus, va fi mai rău pentru tot poporul.
+
+Marc. XIV, 53. Și pe Isus l-au adus în curtea casei unde locuia marele preot.
+
+Mt. XXVI, 58. Când Isus era dus acolo, unul dintre ucenicii lui Isus, Petru, mergea de departe după el și se uita unde îl vor duce. Când Isus a fost adus în curtea marelui preot, a intrat și Petru acolo, ca să vadă cum se va sfârși totul.
+
+69. Și o fetiță din curte l-a văzut pe Petru și îi spune: și tu ești cu Isus Galileeanul.
+
+70. Petru s-a speriat să nu-l învinuiască și pe el și, înaintea întregului popor, a spus cu glas tare: nu știu ce spui.
+
+71. Apoi, când Isus a fost dus în casă, a intrat și Petru cu poporul în tindă. În tindă o femeie se încălzea la foc, și Petru s-a apropiat. Femeia s-a uitat la Petru și spune poporului: <!-- vol. 24, p. 929 --> priviți, omul acesta, se pare că a fost și el cu Isus Nazarineanul.
+
+72. Petru s-a speriat și mai tare și s-a jurat că n-a fost niciodată cu Isus și nu știe ce fel de om este acest Isus.
+
+73. Puțin după aceea s-au apropiat de Petru niște oameni și spun: totuși, după toate se vede că și tu ești dintre acești răzvrătiți. După grai se poate cunoaște că ești din Galileea.
+
+74. Atunci Petru a început să se jure și să se blesteme că niciodată nu l-a cunoscut și nu l-a văzut pe Isus. Și, abia a spus aceasta, a cântat cocoșul.
+
+75. Și Petru și-a amintit cuvintele pe care i le spusese Isus atunci când Petru se jura că, dacă toți se vor lepăda, el nu se va lepăda de el: înainte de cântatul cocoșilor, în noaptea aceasta, de trei ori te vei lepăda de mine. Și a ieșit Petru din curte și a plâns amar. Plângea pentru că nu putuse să se ridice cu spiritul așa încât să nu cadă în ispită. Căzuse într-o ispită, a luptei, când începuse să-l apere pe Isus, și într-o altă ispită, a fricii de moarte, când se lepădase de Isus.
+
+Marc. XIV, 53. Și s-au adunat la marele preot arhiereii ortodocși, știutorii de scripturi și căpeteniile. Și când s-au adunat toți,
+
+Ioan XVIII, 19. l-au adus pe Isus, și marele preot l-a întrebat în ce constă învățătura lui și cine sunt ucenicii lui.
+
+20. Și a răspuns Isus: eu întotdeauna, de față cu toți, am spus totul lumii și spun, și n-am ascuns nimic de nimeni și nu ascund.
+
+21. Atunci despre ce mă întrebi? Întreabă-i pe cei care au auzit și au înțeles învățătura mea. Ei îți vor spune.
+
+22. Când Isus a spus aceasta, unul dintre slujitorii arhiereului l-a lovit pe Isus peste față și a spus: cu cine vorbești? Așa se răspunde arhiereului?
+
+23. Isus a spus: dacă am spus rău, spune ce am spus rău. Iar dacă n-am spus nimic rău, atunci n-ai pentru ce să mă bați.
+
+Mt. XXVI, 59. Arhiereii ortodocși încercau să-l învinuiască pe Isus și la început nu găseau împotriva lui dovezi de așa fel încât să-l poată osândi pentru ele.
+
+60. Apoi au găsit doi pârâși.
+
+61. Acești pârâși au spus despre Isus: am auzit noi înșine cum spunea omul acesta: eu, zice, voi nimici acest templu al vostru făcut de mână și în trei zile voi zidi un alt templu pentru Dumnezeu — nefăcut de mână.
+
+Marc. XIV, 59. Dar și această dovadă era puțin ca să-l învinuiască.
+
+<!-- vol. 24, p. 930 --> Mt. XXVI, 62. Și de aceea arhiereul a început să-l provoace pe Isus și a spus: de ce nu răspunzi la mărturiile lor?
+
+63. Isus tăcea și n-a spus nimic. Atunci arhiereul i-a spus: atunci spune, tu ești Hristosul, fiul lui Dumnezeu?
+
+64. Isus i-a răspuns și a spus: da, eu sunt Hristosul, fiul lui Dumnezeu. Și voi înșivă veți vedea acum că fiul omului este egal cu Dumnezeu.
+
+65. Atunci arhiereul a strigat: tu hulești pe Dumnezeu. Și acum nu ne mai trebuie nicio dovadă. Auzim toți acum că ești hulitor de Dumnezeu.
+
+66. Și arhiereul s-a întors către adunare și a spus: acum ați auzit singuri că hulește pe Dumnezeu. La ce îl osândiți pentru aceasta? Și toți au spus: îl osândim la moarte.
+
+67. Și atunci tot poporul și toți străjerii s-au năpustit asupra lui Isus și au început să-l scuipe în față și să-l plesnească peste obraji și să-l zgârie. Îi astupau ochii, îl loveau peste față și întrebau: ia ghicește, tu, profetule: cine te-a lovit? Și Isus tăcea.
+
+Mt. XXVII, 2. După ce și-au bătut joc de el, l-au dus legat la Ponțiu Pilat.
+
+Ioan XVIII, 28. Și l-au adus la ocârmuire.
+
+29. Pilat, ocârmuitorul, a ieșit la ei și a întrebat: de ce îl învinuiți pe omul acesta?
+
+30. Ei au spus: omul acesta face rău, de aceea l-am adus la tine.
+
+31. Iar Pilat le spune: dacă vă face rău vouă, atunci judecați-l singuri după legea voastră. Iar ei au spus: l-am adus la tine ca să-l execuți, iar nouă nu ne este îngăduit să ucidem pe nimeni.
+
+32. Și așa s-a împlinit ceea ce aștepta Isus. El spunea că trebuie să fii gata să mori pe cruce de mâna romanilor, și nu de moartea ta și nu de mâna iudeilor.
+
+Luc. XXIII, 2. Și când Pilat i-a întrebat de ce îl învinuiesc, ei au spus că el este vinovat că răzvrătește poporul, oprește să se plătească birurile cezarului și se dă singur drept Hristosul și împărat.
+
+Ioan XVIII, 33. Pilat i-a ascultat și a poruncit să-l aducă la el în ocârmuire pe Isus. Când Isus a intrat la el, Pilat i-a spus: deci împăratul iudeilor ești tu?
+
+34. Isus i-a spus: crezi tu într-adevăr că sunt împărat, sau repeți numai ceea ce ți-au spus alții?
+
+<!-- vol. 24, p. 931 --> 35. Pilat a spus: eu nu sunt iudeu, prin urmare tu nu poți fi împăratul meu, iar ai tăi te-au adus la mine. Ce fel de om ești tu?
+
+36. Isus a răspuns: eu sunt împărat, dar împărăția mea nu este pământească. Dacă aș fi împărat pământesc, supușii mei s-ar bate pentru mine și nu s-ar da arhiereilor. Dar iată, vezi că împărăția mea nu este pământească.
+
+37. Pilat a spus la aceasta: dar totuși te socotești împărat? Isus a spus: nu numai eu, ci nici tu nu poți să nu mă socotești împărat. Eu numai aceasta învăț, să le descopăr tuturor adevărul împărăției cerului. Și oricine trăiește prin adevăr, acela este împărat.
+
+38. Pilat a spus: tu spui: adevărul. Ce este adevărul? Și, spunând aceasta, s-a întors și a mers iarăși la arhierei. A ieșit la ei și le-a spus: după mine, omul acesta n-a făcut nimic rău.
+
+Marc. XV, 3. Dar arhiereii stăteau pe poziția lor și spuneau că el face mult rău și răzvrătește poporul și a răzvrătit toată Iudeea, chiar din Galileea.
+
+4. Atunci Pilat, de față cu arhiereii, a început să-l cerceteze pe Isus, dar Isus nu răspundea. Pilat i-a spus: vezi cum te dau de gol, de ce nu te dezvinovățești?
+
+5. Dar Isus tot tăcea și n-a mai spus niciun cuvânt, așa încât Pilat se mira de el.
+
+Luc. XXIII, 6. Pilat și-a amintit că Galileea este sub puterea împăratului Irod și a întrebat: ce, el este din Galileea? I s-a spus: da.
+
+7. Atunci el a spus: dacă e din Galileea, atunci e sub puterea lui Irod. Îl voi trimite la el. Irod era atunci în Ierusalim; și Pilat, ca să scape de ei, l-a trimis pe Isus la Irod.
+
+8. Când l-au adus pe Isus la Irod, Irod s-a bucurat foarte mult să-l vadă pe Isus. Auzise multe despre el și voia să afle ce fel de om este.
+
+9. Irod l-a chemat la el și a început să-l întrebe despre tot ce voia să știe; dar Isus nu i-a răspuns nimic.
+
+10. Iar arhiereii și învățătorii, la fel ca și la Pilat, și înaintea lui Irod îl învinuiau aprig pe Isus și spuneau că este un răzvrătitor.
+
+11. Și Irod l-a socotit pe Isus un om de nimic și, ca să-și bată joc de el, a poruncit să fie îmbrăcat într-o haină roșie și l-a trimis înapoi la Pilat.
+
+12. Irod era mulțumit că Pilat îl cinstise, trimițându-l pe Isus la judecata lui, și din această pricină s-au împăcat, căci înainte fuseseră certați.
+
+<!-- vol. 24, p. 932 --> 13. Iată, când l-au adus din nou pe Isus la Pilat, Pilat i-a chemat din nou pe arhierei și pe căpeteniile iudeilor.
+
+14. Și le-a spus: mi l-ați adus pe omul acesta pentru că răzvrătește poporul, și eu l-am cercetat de față cu voi toți și nu văd să fie un răzvrătitor.
+
+15. L-am trimis cu voi la Irod, și iată, vedeți, nici acolo nu s-a găsit în el nimic vătămător. Și, după mine, n-ai pentru ce să-l execuți cu moartea, și oare nu e mai bine să-l pedepsim și să-l eliberăm.
+
+Mt. XXVI, 20. Și când au auzit aceasta arhiereii, au strigat toți: nu, execută-l, execută-l după obiceiul roman, întinde-l pe cruce.
+
+21. Pilat i-a ascultat și le-a spus arhiereilor: ei, bine, numai că la voi e obiceiul ca pentru sărbătoarea paștelui să fie iertat un făcător de rele. Iată, am în închisoare pe Baraba, ucigaș și răzvrătitor. Așa că pe unul din doi trebuie să-l eliberez: pe Isus sau pe Baraba? Lui Pilat i-ar fi plăcut să-l scape pe Isus, dar arhiereii au întărâtat poporul așa încât toți au strigat: pe Baraba! pe Baraba!
+
+22. Iar Pilat spune: și cu Isus ce să fac? Ei au strigat din nou: după obiceiul roman, pe cruce, pe cruce cu el!
+
+23. Și a început Pilat să-i înduplece. El a spus: de ce vă năpustiți așa asupra lui? N-a făcut nimic de așa natură încât să-l execuți cu moartea, și vouă nu v-a făcut niciun rău.
+
+Ioan XIX, 4. Îl voi elibera, pentru că nu găsesc vină în el.
+
+6. Arhiereii și slujitorii lor au strigat: răstignește-l, răstignește-l! Și Pilat le-a spus: dacă e așa, luați-l și răstigniți-l voi înșivă, căci eu nu văd vină în el.
+
+7. Arhiereii au răspuns: noi cerem ceea ce se cuvine după lege. După lege el trebuie executat pentru că s-a făcut pe sine fiul lui Dumnezeu.
+
+8. Când Pilat a auzit acest cuvânt, s-a tulburat, pentru că nu știa ce înseamnă acest cuvânt, fiul lui Dumnezeu.
+
+9. Și, întorcându-se în ocârmuire, Pilat l-a chemat din nou pe Isus și l-a întrebat: cine ești tu și de unde ești? Dar Isus nu i-a răspuns.
+
+10. Atunci Pilat a spus: de ce nu-mi răspunzi? oare nu vezi că ești în puterea mea și că pot să te răstignesc sau să te eliberez.
+
+11. Isus i-a răspuns: n-ai nicio putere. Există putere numai de sus.
+
+12. Pilat totuși dorea să-l elibereze pe Isus.
+
+<!-- vol. 24, p. 933 --> 15. Și a spus: cum vreți să-l răstigniți pe împăratul vostru?
+
+12. Dar iudeii i-au spus: dacă îl vei elibera pe Isus, prin aceasta vei arăta că ești o slugă necredincioasă a cezarului, pentru că acela care se face pe sine împărat, acela este dușmanul cezarului.
+
+Ioan XIX, 15. Împăratul nostru este cezarul! răstignește-l.
+
+13. Și când Pilat a auzit acest cuvânt, a înțeles că nu mai poate să nu-l execute pe Isus.
+
+Mt. XXVII, 24. Atunci Pilat a ieșit la iudei, a luat apă, și-a spălat mâinile și a spus: nu eu sunt vinovat de sângele acestui om drept.
+
+25. Și tot poporul a strigat: să fie sângele lui asupra noastră și asupra copiilor noștri.
+
+Luc. XXIII, 23. Așa încât arhiereii au biruit.
+
+Ioan XIX, 13. Atunci Pilat s-a așezat pe locul său de judecată.
+
+Mt. XXVII, 26, 27. Și a poruncit ca mai întâi Isus să fie bătut cu nuiele.
+
+28 și 29. Când l-au bătut cu nuiele, soldații, cei care îl biciuiseră, i-au pus pe cap o cunună și i-au dat în mână un băț și i-au aruncat pe spate o mantie roșie și au început să-și bată joc de el: i se închinau în batjocură până la pământ și spuneau: bucură-te, împăratul iudeilor! iar alteori îl loveau peste obraji și peste cap și îl scuipau în față.
+
+Ioan XIX, 16. Iar arhiereii strigau: răstignește-l! Împăratul nostru este cezarul. Răstignește-l. Atunci Pilat a poruncit să-l răstignească.
+
+Mt. XXVII, 31. Atunci i-au scos lui Isus haina roșie, l-au îmbrăcat în hainele lui și i-au poruncit să ducă crucea la locul Golgota, ca acolo să-l răstignească. Și el și-a dus crucea și așa a ajuns la locul Golgota.
+
+Ioan XIX, 18. Și acolo l-au întins (l-au răstignit) pe Isus pe cruce, și încă doi oameni; aceia doi erau de o parte și de alta, iar Isus la mijloc.
+
+Luc. XXIII, 34. Când îl răstigneau pe Isus, el a spus: tată! iartă-i: ei nu știu ce fac.
+
+35. Și când Isus atârna deja pe cruce, poporul l-a înconjurat și își bătea joc de el.
+
+Marc. XV, 22. Ei se apropiau, dădeau din cap spre el și spuneau: ia uite, tu voiai să dărâmi templul Ierusalimului și în trei zile să-l zidești din nou.
+
+30. Ia, scapă-te singur: coboară-te de pe cruce.
+
+31. Și arhiereii, păstorii, stăteau chiar acolo și râdeau de el și spuneau: pe alții îi salva, iar pe sine nu se poate salva.
+
+<!-- vol. 24, p. 934 --> 32. Iată, arată că ești Hristosul, coboară de pe cruce, și atunci te vom crede. El spunea că e fiul lui Dumnezeu și spunea că Dumnezeu nu-l va părăsi. Ce este acum? Dumnezeu l-a părăsit. Și poporul, și arhiereii, și soldații își băteau joc de el, și chiar unul dintre tâlharii răstigniți cu el, și acela își bătea joc de el.
+
+Luc. XXIII, 39. Unul dintre tâlhari, batjocorindu-l, îi spunea: dacă ești Hristosul, scapă-te pe tine și pe noi.
+
+40. Dar celălalt tâlhar a auzit aceasta și a spus: nu te temi de Dumnezeu: ești tu însuți pe cruce și tot îți bați joc de un nevinovat.
+
+41. Noi suntem executați pe drept, iar omul acesta n-a făcut nimic rău.
+
+42. Și, întorcându-se spre Isus, tâlharul acesta i-a spus: doamne! adu-ți aminte de mine în împărăția ta.
+
+43. Și i-a spus Isus: chiar acum ești fericit cu mine.
+
+Mt. XXVII, 46. Iar în ceasul al nouălea, Isus, chinuit, a rostit cu glas tare: eli, eli, lama sabah. Aceasta înseamnă: Dumnezeul meu, Dumnezeul meu, pentru ce m-ai părăsit?
+
+47. Și când au auzit aceasta în popor, au început să vorbească și să râdă. Îl cheamă pe profetul Ilie: să vedem cum va veni Ilie.
+
+48. Apoi Isus a rostit: să beau. Și un om a luat un burete, l-a muiat în oțet (era acolo o putină) și l-a dat lui Isus într-o trestie. Isus a supt din burete și a spus cu glas tare: s-a sfârșit! tată, în mâinile tale îmi dau spiritul. Și, plecându-și capul, și-a dat duhul.
