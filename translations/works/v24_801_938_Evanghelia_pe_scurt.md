@@ -2696,3 +2696,227 @@ Mt. XXVI, 37. Și, apropiindu-se de Petru și de cei doi frați ai lui Zevedeu, 
 45. Atunci s-a întors la ucenici și le-a spus: acum liniștiți-vă și fiți potoliți, pentru că acum s-a hotărât deja că mă voi da în mâinile oamenilor lumești.
 
 <!-- vol. 24, p. 917 -->
+
+## Capitolul XI CUVÂNTAREA DE RĂMAS-BUN
+
+### VIAȚA PERSONALĂ ESTE AMĂGIREA TRUPULUI, RĂUL. VIAȚA ADEVĂRATĂ ESTE VIAȚA COMUNĂ TUTUROR OAMENILOR. (CI NE IZBĂVEȘTE DE CEL VICLEAN.)
+
+#### CUPRINSUL CAPITOLULUI XI
+
+Isus, simțindu-se gata de moarte, a pornit să se predea. Petru l-a oprit și l-a întrebat: unde se duce? Isus a răspuns: mă duc acolo unde tu nu poți merge. Eu sunt gata de moarte, iar tu încă nu ești gata pentru ea. Petru a spus: nu, eu și acum sunt gata să-mi dau viața pentru tine. Isus a răspuns: omul nu poate face făgăduieli în nimic. Și le-a spus tuturor ucenicilor: știu că mă așteaptă moartea, dar cred în viața tatălui și de aceea nu mă tem de ea. Nu vă tulburați nici voi de moartea mea, ci credeți în Dumnezeul adevărat și în tatăl vieții, și atunci moartea mea nu vi se va părea înfricoșătoare. Dacă sunt unit cu tatăl vieții, atunci nu pot fi lipsit de viață. Adevărat, nu vă spun cum, și unde, și când va fi viața mea după moarte, dar vă arăt calea spre viața adevărată. Învățătura mea nu spune cum va fi viața, dar ea descoperă singura cale adevărată a vieții. Ea stă în a te uni cu tatăl. Iar tatăl este principiul vieții. Învățătura mea stă în a trăi în voia tatălui și a-i împlini voia pentru viața și binele tuturor oamenilor. Îndrumătorul vostru după mine va fi cunoașterea voastră a adevărului. Împlinind învățătura mea, veți simți întotdeauna că sunteți în adevăr, că tatăl este în voi și voi în tatăl. Și, cunoscând în voi pe tatăl vieții, veți încerca acea liniște pe care nimic nu v-o va lua. Și de aceea, dacă cunoașteți adevărul și trăiți în el, nici moartea mea, nici a voastră proprie nu vă poate neliniști.
+
+Oamenii se închipuie ființe separate, fiecare cu voia sa deosebită a vieții; dar aceasta este numai o amăgire. Singura viață adevărată este aceea care recunoaște drept principiu al vieții voia tatălui. Învățătura mea descoperă această unitate a vieții și înfățișează viața nu ca pe niște lăstari separați, ci ca pe un singur copac, pe care cresc toți lăstarii. Numai acela care trăiește în voia tatălui, ca lăstarul pe copac, numai acela trăiește, iar cine vrea să trăiască prin voia sa, ca un lăstar rupt, acela moare. Dacă veți trăi în voia tatălui, veți avea tot ce doriți, pentru că viața le este dată oamenilor pentru bine.
+
+<!-- vol. 24, p. 918 --> Tatăl mi-a dat viața pentru bine, și eu v-am învățat să trăiți pentru bine. Dacă veți împlini poruncile mele, veți fi fericiți. Porunca ce exprimă toată învățătura mea este numai aceea că toți oamenii trebuie să se iubească unii pe alții. Iar iubirea constă în a-ți jertfi viața trupească pentru altul. Altă definiție a iubirii nu există. Și, împlinind porunca mea a iubirii, nu o veți împlini ca robii care, neînțelegând, împlinesc porunca domnului, ci veți trăi ca oameni liberi, la fel ca mine, pentru că v-am lămurit sensul vieții, care decurge din cunoașterea tatălui vieții. Voi ați primit învățătura mea nu pentru că ați ales-o la întâmplare, ci pentru că ea este singura adevărată, una în care oamenii sunt liberi.
+
+Învățătura lumii constă în a face rău oamenilor; iar învățătura mea în a ne iubi unii pe alții; și de aceea lumea vă va urî la fel cum m-a urât și pe mine. Lumea nu înțelege învățătura mea, și de aceea vă va prigoni și vă va face rău, socotind că prin aceasta îi slujește lui Dumnezeu. Așa că nu vă mirați de aceasta și înțelegeți că așa trebuie să fie. Lumea, care nu-l înțelege pe Dumnezeul adevărat, trebuie să vă prigonească, iar voi trebuie să întăriți adevărul.
+
+Vă întristați că mă vor ucide, dar mă vor ucide pentru că întăresc adevărul. Și de aceea moartea mea este necesară pentru întărirea adevărului. Moartea mea, în care nu mă abat de la adevăr, vă va întări, și veți înțelege în ce stă minciuna, în ce stă adevărul și ce iese din cunoașterea minciunii și a adevărului. Veți înțelege că minciuna stă în aceea că oamenii se încred în viața trupească și nu cred în viața spiritului; că adevărul este în unirea cu tatăl și că din aceasta iese biruința spiritului asupra trupului. Când nu voi mai fi în viața trupească, spiritul meu va fi cu voi. Dar voi, ca toți oamenii, nu veți simți întotdeauna în voi puterea spiritului. Uneori veți slăbi și veți pierde puterea spiritului, veți cădea în ispitire, uneori iarăși vă veți trezi la viața adevărată. Vor veni asupra voastră ceasuri de robie a trupului, dar aceasta va fi numai pentru o vreme; veți suferi și vă veți naște iarăși cu spiritul, cum suferă femeia în chinurile nașterii, iar apoi simte bucuria că a născut un om în lume; același lucru îl veți încerca și voi când, după robia trupului, vă veți ridica cu spiritul. Veți simți atunci o asemenea fericire, încât nu veți mai avea ce dori. Să știți aceasta dinainte și, în ciuda prigoanelor, a luptei lăuntrice și a <!-- vol. 24, p. 919 --> căderii spiritului, să știți că spiritul este viu în voi și că singurul Dumnezeu adevărat este înțelegerea voii tatălui, descoperită de mine.
+
+Și, întorcându-se către tatăl spirit, Isus a spus: am făcut ceea ce mi-ai poruncit, le-am descoperit oamenilor că tu ești principiul a toate. Și ei m-au înțeles. I-am învățat că ei toți au ieșit dintr-un singur principiu al vieții nesfârșite și că de aceea ei toți sunt una, că, precum tatăl este în mine și eu în tatăl, așa și ei sunt una cu mine și cu tatăl. Le-am descoperit și aceea că, precum tu, iubind, i-ai trimis în lume, așa și ei trebuie să trăiască prin iubire în lume.
+
+Ioan XIII, 36. Și Petru i-a spus lui Isus: unde te duci? Isus a răspuns: nu vei fi în stare să mergi acolo unde mă duc eu acum. Numai mai târziu vei merge și tu acolo.
+
+37. Și a spus Petru: de ce crezi tu că eu acum nu sunt în stare să merg acolo unde mergi și tu? Îmi voi da viața pentru tine.
+
+38. Și a spus Isus: spui că îți vei da viața pentru mine, dar să nu te lepezi tu de mine de trei ori încă înainte de cântatul cocoșilor.
+
+XIV, 1. Și Isus le-a spus ucenicilor: nu vă tulburați și nu vă temeți, ci credeți în Dumnezeul adevărat al vieții și în învățătura mea.
+
+2. Viața tatălui nu este numai aceea care este pe pământ, ci este și o altă viață.
+
+3. Dacă ar fi numai o viață ca aici, atunci v-aș spune că, atunci când voi muri, voi ajunge în sânul lui Avraam și vă voi pregăti acolo loc. Și voi veni și vă voi lua, și ne vom ferici împreună în sânul lui Avraam.
+
+4. Dar eu vă arăt numai calea spre viață.
+
+5. Toma a spus: dar noi nu știm unde te duci, și de aceea nu putem cunoaște calea. Trebuie să știm ce va fi acolo după moarte?
+
+6. Isus a spus: eu nu vă pot arăta ce va fi acolo; învățătura mea este calea, adevărul și viața. Și nu te poți uni cu tatăl vieții altfel decât numai prin învățătura mea.
+
+7. Dacă veți împlini învățătura mea, îl veți cunoaște pe tatăl.
+
+8. Filip a spus: dar cine este tatăl?
+
+9. Și a spus Isus: tatăl — este ceea ce dă viața. Eu am împlinit voia tatălui, și de aceea, după viața mea, poți înțelege în ce stă voia tatălui.
+
+10. Eu trăiesc prin tatăl, și tatăl trăiește în mine. Și tot ce spun și fac, toate acestea le fac după voia tatălui.
+
+<!-- vol. 24, p. 920 --> 11. Învățătura mea este că eu sunt în tatăl și tatăl în mine. Dacă nu înțelegeți învățătura însăși, atunci mă vedeți pe mine și faptele mele, și de aceea puteți înțelege ce este tatăl.
+
+12. Și știți că acela care va urma învățătura mea poate face același lucru ca și mine, și încă mai mult, pentru că eu voi muri, iar el va mai trăi.
+
+13. Acela care va trăi după învățătura mea va avea tot ce dorește, pentru că atunci fiul va fi același lucru ca tatăl.
+
+14. Orice ați dori după învățătura mea, toate vor fi ale voastre.
+
+15. Dar pentru aceasta trebuie să iubiți învățătura mea.
+
+16. Învățătura mea vă va da în locul meu un apărător și mângâietor.
+
+17. Acest mângâietor va fi conștiința adevărului, pe care oamenii lumești nu-l înțeleg, dar voi îl veți cunoaște în voi.
+
+18. Nu veți fi niciodată singuri, dacă spiritul învățăturii mele va fi cu voi.
+
+19. Eu voi muri, și oamenii lumești nu mă vor mai vedea, dar voi mă veți vedea; pentru că învățătura mea trăiește, și voi veți trăi prin ea.
+
+20. Și atunci, dacă învățătura mea va fi în voi, veți înțelege că eu sunt în tatăl și tatăl în mine.
+
+21. Acela care va împlini învățătura mea îl va simți în sine pe tatăl și în acela va trăi spiritul meu.
+
+22. Și i-a spus Iuda, nu Iscarioteanul, ci celălalt: dar de ce nu pot toți să trăiască prin spiritul adevărului?
+
+23. Și drept răspuns a spus Isus: numai acela care împlinește învățătura mea, numai pe acela îl iubește tatăl și numai în acela se poate sălășlui spiritul meu.
+
+24. Pe cine nu împlinește învățătura mea, pe acela nu-l poate iubi tatăl meu, pentru că învățătura aceasta nu este a mea, ci a tatălui.
+
+25. Iată tot ce vă pot spune acum.
+
+26. Dar spiritul meu, spiritul adevărului, care se va sălășlui în voi după mine, el vă va descoperi totul, și vă veți aminti și veți înțelege multe din cele ce v-am spus.
+
+27. Așa încât puteți fi întotdeauna liniștiți cu spiritul, nu cu acea liniște lumească pe care o caută oamenii lumești, ci cu o asemenea liniște a spiritului încât nu vă veți mai teme de nimic.
+
+28. De aceea, dacă împliniți învățătura mea, n-aveți de ce să <!-- vol. 24, p. 921 --> vă întristați de moartea mea. Eu, ca spirit al adevărului, voi veni la voi și, împreună cu conștiința tatălui, mă voi sălășlui în inima voastră. Dacă împliniți învățătura mea, trebuie să vă bucurați, pentru că, în locul meu, va fi cu voi tatăl în inima voastră, iar aceasta este mai bine pentru voi.
+
+Ioan XV, 1. Învățătura mea este copacul vieții. Tatăl — este acela care îngrijește copacul.
+
+2. El curăță și îngrijește ramurile pe care este rod, ca pe ele să crească mai mult.
+
+4. Țineți-vă de învățătura mea a vieții, și viața va fi în voi. Și precum lăstarul nu trăiește prin sine însuși, ci prin copac, așa și voi trăiți prin învățătura mea.
+
+5. Învățătura mea — este copacul; voi — sunteți lăstarii. Acela care trăiește prin învățătura mea a vieții aduce rod mult, așa încât în afara învățăturii mele nu este viață.
+
+6. Cine nu trăiește prin învățătura mea, acela se usucă și piere, iar ramurile uscate se taie și se ard.
+
+7. Dacă veți trăi prin învățătura mea și o veți împlini, veți avea tot ce doriți.
+
+8. Pentru că voia tatălui este ca voi să trăiți viața adevărată și să aveți ceea ce doriți.
+
+9. Precum tatăl mi-a dat binele mie, așa și eu vă dau binele vouă. Țineți-vă de acest bine.
+
+10. Eu sunt viu pentru că tatăl mă iubește și eu îl iubesc pe tatăl; și voi trăiți prin aceeași iubire.
+
+11. Dacă veți trăi prin aceasta, veți fi fericiți.
+
+12. Porunca mea este să vă iubiți unii pe alții la fel cum v-am iubit eu.
+
+13. Nu este iubire mai mare decât aceea de a-ți jertfi viața pentru iubirea celor ai tăi, cum am făcut eu.
+
+14. Sunteți egali cu mine, dacă faceți ceea ce v-am învățat.
+
+15. Nu vă socotesc robi cărora li se poruncește, ci egali, pentru că v-am lămurit tot ce am înțeles despre tatăl.
+
+16. Voi nu alegeți învățătura mea după voia voastră, ci pentru că v-am arătat-o ca singura adevărată, una în care veți trăi și veți avea tot ce doriți.
+
+17. Toată învățătura este în a vă iubi unii pe alții.
+
+18. Dacă lumea vă va urî, nu vă mirați de aceasta: ea urăște învățătura mea.
+
+19. Dacă ați fi una cu lumea, ea v-ar iubi. Dar eu v-am despărțit de lume, și pentru aceasta ea vă va urî.
+
+<!-- vol. 24, p. 922 --> 20. Dacă pe mine m-au prigonit, și pe voi vă vor prigoni.
+
+21. Vor face toate acestea pentru că nu-l cunosc pe Dumnezeul adevărat.
+
+22. Eu le-am lămurit, dar ei n-au vrut nici să mă asculte.
+
+23. N-au înțeles învățătura mea pentru că nu l-au înțeles pe tatăl.
+
+24. Mi-au văzut viața, și viața mea le-a arătat greșeala lor.
+
+25. Și pentru aceasta m-au urât și mai mult.
+
+26. Spiritul adevărului, care va veni la voi, va confirma același lucru.
+
+27. Și voi veți confirma aceasta.
+
+Ioan XVI, 1. Vă spun aceasta dinainte, ca să nu vă înșelați când vor veni asupra voastră prigoanele.
+
+2. Vă vor face lepădați. Toți vor crede că, ucigându-vă, fac ceea ce îi este plăcut lui Dumnezeu.
+
+3. Toate acestea nu se poate să nu le facă, pentru că nu înțeleg nici învățătura mea, nici pe Dumnezeul adevărat.
+
+4. Toate acestea vi le spun dinainte, ca să nu vă mirați când se vor întâmpla toate acestea.
+
+5. Așa că iată, acum plec la acel spirit care m-a trimis, și acum înțelegeți că nu mă puteți întreba unde mă duc.
+
+6. Iar înainte vă întristați că nu v-am spus unde anume, în ce loc plec.
+
+7. Dar adevărat vă spun că e bine pentru voi că plec. Dacă nu voi muri, nu va veni la voi spiritul adevărului, iar dacă voi muri, el se va sălășlui în voi.
+
+8. El se va sălășlui în voi, și vă va fi limpede în ce stă minciuna, în ce stă adevărul, în ce stă hotărârea.
+
+9. Minciuna stă în aceea că oamenii nu cred în viața spiritului.
+
+10. Adevărul stă în aceea că eu sunt una cu tatăl.
+
+11. Hotărârea stă în aceea că puterea vieții trupești este nimicită.
+
+12. Încă multe v-aș spune, dar vă e greu să înțelegeți.
+
+13. Iar când se va sălășlui în voi spiritul adevărului, el vă va arăta tot adevărul, pentru că el vă va spune nu ceva nou, al său, ci ceea ce este de la Dumnezeu, și el în toate împrejurările vieții vă va arăta calea.
+
+15. El va fi și el de la tatăl, cum sunt și eu de la tatăl, de aceea va spune același lucru ca și mine.
+
+16. Dar și când eu, spiritul adevărului, voi fi în voi, nu mă veți vedea întotdeauna. Uneori mă veți auzi, iar alteori nu mă veți auzi.
+
+<!-- vol. 24, p. 923 --> 17. Și și-au spus ucenicii unii altora: ce înseamnă aceasta; el a spus: uneori mă veți vedea, alteori nu mă veți vedea.
+
+18. Ce înseamnă: uneori veți, alteori nu veți, ce spune el?
+
+19. Isus le-a spus: nu înțelegeți ce înseamnă aceasta: uneori mă veți vedea, alteori nu mă veți vedea.
+
+20. Știți cum se întâmplă întotdeauna pe lume, că unii se întristează și se mâhnesc, iar alții se bucură. Și vă veți întrista, și întristarea voastră se va preface în bucurie.
+
+21. Femeia, când naște, se mâhnește în chinuri, iar când s-a terminat, nu-și mai amintește chinurile de bucurie că s-a născut un om în lume.
+
+22. Așa și voi vă veți întrista și deodată mă veți vedea, spiritul adevărului va intra în voi, și întristarea voastră se va preface în bucurie.
+
+23. Și atunci nu-mi veți mai cere nimic, pentru că atunci veți avea tot ce doriți. Atunci tot ce dorește cineva în spirit, toate acestea le va avea de la tatăl său.
+
+24. Înainte nu cereați nimic pentru spirit, dar atunci cereți ce vreți pentru spirit, și toate vă vor fi date, așa încât fericirea voastră va fi deplină.
+
+25. Acum eu, ca om, nu vă pot spune limpede aceasta în cuvinte, dar atunci, când eu, ca spirit al adevărului, voi trăi în voi, vă voi vesti limpede totul despre tatăl.
+
+26. Atunci tot ce veți cere, în numele spiritului, de la tatăl, nu eu vă voi da.
+
+27. Ci tatăl vostru vă va da, pentru că vă iubește pentru că ați primit învățătura mea.
+
+28. Ați înțeles că înțelegerea vine de la tatăl în lume și se întoarce din lume la tatăl.
+
+29. Atunci ucenicii i-au spus lui Isus: acum am înțeles totul, și nu mai avem ce să întrebăm.
+
+30. Credem că tu ești de la Dumnezeu.
+
+31, 33. Și a spus Isus: toate acestea vi le-am spus ca să aveți încredere și liniște în învățătura mea. Orice nenorociri ar fi cu voi în lume, nu vă temeți de nimic; învățătura mea va birui lumea.
+
+Ioan XVII, 1. După aceasta Isus și-a ridicat ochii spre cer și a spus: tatăl meu! tu i-ai dat fiului tău libertatea vieții, ca el să primească viața adevărată.
+
+3. Viața este cunoașterea Dumnezeului adevărat — a înțelegerii descoperite de mine.
+
+<!-- vol. 24, p. 924 --> 6. Te-am descoperit oamenilor pe pământ. Am făcut lucrul pe care mi l-ai poruncit.
+
+4. Am arătat ființa ta oamenilor pe pământ. Ei erau ai tăi și înainte; dar după voia ta le-am descoperit adevărul. Și ei te-au cunoscut.
+
+7. Ei au înțeles că tot ce au, că viața lor este numai de la tine.
+
+8. Și că eu i-am învățat nu de la mine, ci că eu și ei am ieșit de la tine.
+
+9. Te rog deci pentru cei care te recunosc.
+
+10. Ei au înțeles că tot ce e al meu — e al tău și ce e al tău — e al meu.
+
+11. Eu nu mai sunt în lume, ci mă întorc la tine; dar ei sunt în lume, și de aceea te rog, tată, păstrează în ei înțelegerea ta,
+
+15. Nu te rog să-i iei din lume, ci să-i izbăvești de rău.
+
+17. Să-i întărești în adevărul tău. Înțelegerea ta este adevărul.
+
+18. Tatăl meu! doresc ca ei să fie la fel ca mine, ca ei să înțeleagă la fel ca mine că viața adevărată a început înainte de începutul lumii.
+
+21. Ca toți să fie una, precum tu, tată, ești în mine și eu în tine, așa încât și ei să fie una în noi.
+
+23. Eu în ei, iar tu în mine, ca toți să se unească într-una și ca oamenii să înțeleagă că ei nu s-au născut singuri, ci tu, iubind, i-ai trimis în lume la fel ca și pe mine.
+
+25. Tată drept! lumea nu te-a cunoscut, dar eu te-am cunoscut, și ei te-au cunoscut prin mine.
+
+26. Și le-am lămurit ce ești tu. Tu ești aceea, ca iubirea cu care m-ai iubit pe mine să fie în ei. Tu le-ai dat viață, prin urmare i-ai iubit. Eu i-am învățat să cunoască aceasta și să te iubească pe tine așa încât iubirea ta pentru ei să se întoarcă de la ei la tine.
