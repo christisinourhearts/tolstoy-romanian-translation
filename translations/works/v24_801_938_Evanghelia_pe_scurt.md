@@ -1629,11 +1629,11 @@ Ca răspuns la cererea iudeilor de a le da dovezi ale adevărului învățături
 
 Iudeii nu l-au înțeles și căutau dovezi exterioare că el însuși este Hristosul despre care este scris în proorocii. La aceasta el le-a spus: nu cercetați cine sunt eu și dacă despre mine este scris în proorociile voastre, ci pătrundeți învățătura mea, ceea ce spun despre tatăl nostru comun. Pe mine, ca om, nu trebuie să mă credeți, dar trebuie să credeți ceea ce spun în numele tatălui comun al tuturor oamenilor. Nu trebuie să cercetați după înfățișare de unde sunt eu, ci trebuie să urmați învățătura mea. Acela care va urma învățătura mea va primi viața adevărată. Dovezi ale învățăturii mele nu pot fi. Ea este lumină. Și precum lumina nu poate fi luminată, tot așa nu se poate dovedi adevărul adevărului. Învățătura mea este — lumină; și cine o vede, acela are lumină și viață și aceluia n-ai ce să-i dovedești. Iar cine este în întuneric, acela trebuie să meargă la lumină.
 
-Dar iudeii l-au întrebat din nou: cine este el după trup? El le-a spus: eu sunt — ceea ce v-am spus de la început. Eu sunt om, fiul tatălui vieții. Numai acela care va înțelege despre sine același lucru și va împlini voia tatălui comun, numai acela va înceta să fie rob și va deveni liber. Pentru că numai greșeala care ia viața trupească drept viața adevărată ne face nelibere. Acela care va înțelege adevărul că viața este numai în împlinirea voii tatălui, numai acela va deveni liber și nemuritor. Precum robul nu rămâne pentru totdeauna în casa stăpânului, iar fiul rămâne pentru totdeauna, tot așa și omul care trăiește ca rob al trupului nu rămâne pentru totdeauna în viață; iar omul care împlinește prin spirit voia tatălui rămâne pentru totdeauna în viață.
+Dar iudeii l-au întrebat din nou: cine este el după trup? El le-a spus: eu sunt — ceea ce v-am spus de la început. Eu sunt om, fiul tatălui vieții. Numai acela care va înțelege despre sine același lucru și va împlini voia tatălui comun, numai acela va înceta să fie rob și va deveni liber. Pentru că numai greșeala care ia viața trupească drept viața adevărată ne face neliberi. Acela care va înțelege adevărul că viața este numai în împlinirea voii tatălui, numai acela va deveni liber și nemuritor. Precum robul nu rămâne pentru totdeauna în casa stăpânului, iar fiul rămâne pentru totdeauna, tot așa și omul care trăiește ca rob al trupului nu rămâne pentru totdeauna în viață; iar omul care împlinește prin spirit voia tatălui rămâne pentru totdeauna în viață.
 
 Ca să mă înțelegeți, trebuie să înțelegeți că tatăl meu nu este ceea ce este tatăl vostru, acela pe care îl numiți Dumnezeu. Tatăl vostru este un Dumnezeu trupesc, iar tatăl meu este — spiritul vieții. Tatăl vostru Dumnezeu este un Dumnezeu răzbunător, ucigaș de oameni, acela care îi execută pe oameni; iar tatăl meu dă viață. Și de aceea suntem copiii unor tați diferiți. Eu caut adevărul, iar voi vreți să mă ucideți pentru aceasta, ca să-i fiți pe plac Dumnezeului vostru. Dumnezeul vostru este — diavolul, principiul răului, și dacă voi <!-- vol. 24, p. 874 --> îi slujiți lui, atunci îi slujiți diavolului. Iar învățătura mea este că suntem fiii tatălui vieții, și acela care va crede în învățătura mea nu va vedea moartea. Iudeii au spus: cum poate omul să nu moară, dacă toți oamenii cei mai plăcuți lui Dumnezeu, chiar și Avraam, au murit? Cum poți să spui că tu și cei care vor crede în învățătura ta nu vor muri?
 
-La aceasta Isus a răspuns: eu nu spun nimic de la mine. Eu vorbesc despre chiar acel principiu al vieții pe care voi îl numiți Dumnezeu și care este în oameni. Acest principiu îl cunosc și nu se poate să nu-l cunosc, și îi cunosc voia și o împlinesc, și tocmai despre acest principiu al vieții spun că el a fost, și este, și va fi și că pentru el nu există moarte. Cererea de dovezi ale adevărului învățăturii mele seamănă cu situația în care oamenii ar începe să ceară dovezi de la un orb despre de ce și cum a văzut lumina.
+La aceasta Isus a răspuns: eu nu spun nimic de la mine. Eu vorbesc despre chiar acel principiu al vieții pe care voi îl numiți Dumnezeu și care este în oameni. Acest principiu îl cunosc și nu se poate să nu-l cunosc, și îi cunosc voia și o împlinesc, și tocmai despre acest principiu al vieții spun că el a fost, și este, și va fi și că pentru el nu există moarte. Cererea de dovezi ale adevărului învățăturii mele seamănă cu situația în care oamenii ar începe să ceară de la un orb dovezi: de ce și cum a văzut lumina.
 
 Orbul vindecat, rămânând același om care fusese înainte, ar putea spune numai că a fost orb, iar acum vede. Întocmai același lucru, și nimic mai mult, poate spune omul care nu înțelegea înainte sensul vieții sale și l-a înțeles. Un asemenea om ar spune numai că înainte nu cunoștea binele adevărat al vieții, iar acum îl cunoaște. Și precum orbul vindecat, dacă i se va spune că a fost vindecat nu cum trebuie, că omul care l-a vindecat este păcătos, că trebuie să se vindece altfel, vindecatul nu poate spune nimic altceva decât: eu nu știu nimic despre corectitudinea vindecării și despre păcătoșenia celui ce m-a vindecat; despre o altă vindecare, mai bună, știu un singur lucru, că am fost orb, iar acum văd.
 
@@ -1663,7 +1663,7 @@ Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte
 
 7. Tocmai aceasta le și arăt oamenilor, le arăt că slujirea lor a lui Dumnezeu este mincinoasă, și tocmai pentru aceasta mă urăsc.
 
-8. Voi mergeți la sărbătoare, iar eu voi merge când îmi va veni.
+8. Voi mergeți la sărbătoare, iar eu voi merge când voi socoti eu.
 
 9. Și frații au plecat, iar el a rămas și a venit abia mai târziu, la mijlocul sărbătorii.
 
@@ -1683,7 +1683,7 @@ Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte
 
 19. Legea voastră a lui Moise nu este legea tatălui, și de aceea cei care o urmează nu împlinesc legea tatălui și fac răul și minciuna.
 
-21. Eu vă învăț împlinirea singurei voi a tatălui, și în învățătura mea nu poate fi contradicție.
+21. Eu vă învăț împlinirea numai a voii tatălui, și în învățătura mea nu poate fi contradicție.
 
 <!-- vol. 24, p. 877 --> 22, 23. Iar legea voastră scrisă a lui Moise este toată plină de contradicții.
 
@@ -1701,7 +1701,7 @@ Ioan VII, 1. După aceasta iudeii încercau să-l osândească pe Isus la moarte
 
 33. Eu sunt aici, între voi, nu pentru multă vreme a vieții mele, vă arăt calea spre acel izvor al vieții din care am ieșit.
 
-34. Iar voi îmi cereți dovezi și vreți să mă osândiți. Dacă nu cunoașteți această cale, atunci, când nu voi mai fi, n-o veți mai găsi nicidecum. Nu trebuie să mă judecați pe mine, ci trebuie să mergeți după mine. Cine va face ceea ce spun eu, acela va afla dacă este adevărat ceea ce vă spun.
+34. Iar voi mi-ați cerut dovezi și vreți să mă osândiți. Dacă nu cunoașteți această cale, atunci, când nu voi mai fi, n-o veți mai găsi nicidecum. Nu trebuie să mă judecați pe mine, ci trebuie să mergeți după mine. Cine va face ceea ce spun eu, acela va afla dacă este adevărat ceea ce vă spun.
 
 38. Acela pentru care viața trupească nu a devenit hrană a spiritului, acela nu caută adevărul cum caută însetatul apa, acela nu mă poate înțelege. Iar acela care însetează după adevăr, acela să vină la mine și să bea. Și acela care va crede în învățătura mea va primi viața adevărată.
 
@@ -1749,7 +1749,7 @@ Ioan VIII, 12. Altă dată Isus vorbea cu ortodocșii și le-a spus: dovezi ale 
 
 26. Eu sunt fiul omului, care recunoaște spiritul drept tatăl său; și ceea ce am înțeles de la tatăl, aceea spun lumii.
 
-28. Și când îl veți înălța în voi pe fiul omului, atunci veți afla ce sunt eu, pentru că eu fac și spun nu de la mine, ca om, ci ceea ce m-a învățat tatăl, aceea spun, aceea învăț.
+28. Și când îl veți preamări în voi pe fiul omului, atunci veți afla ce sunt eu, pentru că eu fac și spun nu de la mine, ca om, ci ceea ce m-a învățat tatăl, aceea spun, aceea învăț.
 
 <!-- vol. 24, p. 879 --> 29. Și acela care m-a trimis, acela este întotdeauna cu mine, și tatăl nu mă va părăsi, pentru că fac voia lui.
 
@@ -1831,7 +1831,7 @@ Ioan VIII, 12. Altă dată Isus vorbea cu ortodocșii și le-a spus: dovezi ale 
 
 18. Iudeii n-au crezut că el fusese înainte întunecat, iar acum s-a luminat, până ce nu i-au chemat pe părinții lui și nu i-au întrebat.
 
-19. Acesta este fiul vostru, cel care a fost întunecat din naștere. Cum de s-a luminat acum?
+19. Oare acesta este fiul vostru, cel care a fost întunecat din naștere? Cum de s-a luminat acum?
 
 20. Părinții au spus: știm că acesta este fiul nostru și că a fost întunecat din naștere.
 
